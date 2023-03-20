@@ -1,4 +1,3 @@
-
 ## Robert L Forward
 
 # DRAGON'S EGG

@@ -1,6 +1,6 @@
 # Summary
 
-[Cover](./index.md)
+[Index](./index.md)
 
 ---
 - [Dragon's Egg](./dragonsegg/index.md)

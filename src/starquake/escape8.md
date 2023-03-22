@@ -11,9 +11,7 @@ Manager-Director/5 set up a conference link with her team leaders.
 
 "Inertia pushers ready," said Graviton-Manager/53.
 
-"Proceed," said Manager-Director/5. She returned to the
-
-task of braiding the long hair on her prize-winning Slink. She could have had robots do it for her, but Rapunzel deserved personal care.
+"Proceed," said Manager-Director/5. She returned to the task of braiding the long hair on her prize-winning Slink. She could have had robots do it for her, but Rapunzel deserved personal care.
 
 "Cut away," Void-Manager/18 told his team of engineers.
 

@@ -1,8 +1,8 @@
 ## Robert L Forward
 
-# DRAGON'S EGG
+# [DRAGON'S EGG](./dragonsegg/index.md)
 
-# STARQUAKE
+# [STARQUAKE](./starquake/index.md)
 
 **DRAGON'S EGG** was a neutron star, an incredibly dense sphere only twenty kilometers in diameter, with a surface gravity sixty-seven _billion_ times that of Earth. No 
 human could ever land on such a star. Only by the most advanced technology could science even study it.

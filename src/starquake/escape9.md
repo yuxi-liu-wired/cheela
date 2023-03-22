@@ -21,9 +21,7 @@ The screen blanked and a visual image overlaid with computer graphics appeared o
 
 "I just scanned it quickly," admitted Carole.
 
-"The augmentor masses are dense masses just like the compensator masses, but there are only two of them. Instead
-
-of being placed in a ring around the point to be protected, they are placed above and below the place to be protected. In that position the two masses add to the tides of the neutron star."
+"The augmentor masses are dense masses just like the compensator masses, but there are only two of them. Instead of being placed in a ring around the point to be protected, they are placed above and below the place to be protected. In that position the two masses add to the tides of the neutron star."
 
 "But that would just make the tides worse," said Carole.
 
@@ -48,6 +46,4 @@ Suddenly the screens blanked and a message appeared on all their screens.
     NEXT PHASE STARTS IN 10 SECONDS.
     DRAGON SLAYER CREW WILL RETURN IN SIX MONTHS.
 
-The ten seconds passed slowly. The next two milliseconds were full of activity. Each tank was jerked upwards away from the center of the ring. The ring was collapsed until it was only a few meters in diameter. As it shrank, its glowing surface turned redder and redder, finally turning into a deep, dark, impossible black. It did not even reflect the yellow-white light from Egg. Then, one by one, the tanks were
-
-thrust through the hole in the center of the invisible ring. The heavy steel tanks distorted visibly as they passed through. They did not come out the other side.
+The ten seconds passed slowly. The next two milliseconds were full of activity. Each tank was jerked upwards away from the center of the ring. The ring was collapsed until it was only a few meters in diameter. As it shrank, its glowing surface turned redder and redder, finally turning into a deep, dark, impossible black. It did not even reflect the yellow-white light from Egg. Then, one by one, the tanks were thrust through the hole in the center of the invisible ring. The heavy steel tanks distorted visibly as they passed through. They did not come out the other side.

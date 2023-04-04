@@ -1,7 +1,7 @@
 ## 07:03:32 GMT TUESDAY 21 JUNE 2050
 This time Qui-Qui activated the communicator early. Her voice was solemn. "Heavy-Egg has just flowed. I guess the strain on his body was too much."
 
-"Our last engineer gone! We are doomed!" came the wail fromHohmann-Transfer. "We might as well give up."
+"Our last engineer gone! We are doomed!" came the wail from Hohmann-Transfer. "We might as well give up."
 
 _"I'm_ not giving up," said Qui-Qui. "Let me speak to Cliff-Web. I want the next assignment for Heavy-Egg's beginning engineering class."
 

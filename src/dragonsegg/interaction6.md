@@ -9,7 +9,7 @@ The Council had decreed that his new discoveries on antigravity would have to be
 
 Yet he knew that, although the human might receive some limited notoriety for breaking the cryptocode to the antigravity section, it would give no real consolation to the person who, after all, had come in second best.
 
-"They are so brave&mdash;so noble&mdash;those Slow Ones," thought Super-Fluid, as he approached the construction site for the antigravity machine.
+"They are so brave---so noble---those Slow Ones," thought Super-Fluid, as he approached the construction site for the antigravity machine.
 
 Helium-Two, Project Manager of the Negative Gravity Test Project, watched the wrinkled figure of the elderly scientist approach. According to reports, the Aged One still had enough juice left in him to take an interest in his earlier scientific exploits, even though he had served a full stint at the hatching pens. He had been expecting a wrinkled, but still perky Aged One; but what was coming toward him was the sorriest, most dejected cheela he had ever seen since he had been hatched. There must be something wrong.
 
@@ -29,13 +29,13 @@ The two cheela moved in single file across the dense crystal crust of the neutro
 
 "I didn't visualize anything like this when I was working on the theory," Super-Fluid said, as his dozen eyes took in the vista.
 
-"You are lucky. Very few theoretical scientists ever see their mathematical equations turned into working hardware in their lifetime, especially when the theoretical work involves such a fundamental change in our understanding of nature such as does the Super-Fluid-Einstein theory of gravitation. Einstein himself was one of the few. He lived to see his _E=mc&sup2;_ prediction bring about control of nuclear energy. Einstein was lucky because it turned out to be easy for the humans to get a nuclear chain reaction going&mdash;they just have to bring two pieces of uranium or plutonium near each other. You are fortunate in that it is easy for us to get the very high mass-densities and velocities that are needed to make the Super-Fluid effect work."
+"You are lucky. Very few theoretical scientists ever see their mathematical equations turned into working hardware in their lifetime, especially when the theoretical work involves such a fundamental change in our understanding of nature such as does the Super-Fluid-Einstein theory of gravitation. Einstein himself was one of the few. He lived to see his _E=mc&sup2;_ prediction bring about control of nuclear energy. Einstein was lucky because it turned out to be easy for the humans to get a nuclear chain reaction going---they just have to bring two pieces of uranium or plutonium near each other. You are fortunate in that it is easy for us to get the very high mass-densities and velocities that are needed to make the Super-Fluid effect work."
 
-"I wish you wouldn't use that term," Super-Fluid said. "The correct term is the gravimotive effect. People keep referring to the effect by my name&mdash;and I appreciate the honor, but I am thinking of the poor students in the future. They are going to have a hard time remembering that the Super-Fluid effect is the gravimotive effect and does not have anything to do with superconductivity."
+"I wish you wouldn't use that term," Super-Fluid said. "The correct term is the gravimotive effect. People keep referring to the effect by my name---and I appreciate the honor, but I am thinking of the poor students in the future. They are going to have a hard time remembering that the Super-Fluid effect is the gravimotive effect and does not have anything to do with superconductivity."
 
 The two started back toward the bunker as Super-Fluid went on, "I have always been proud of the unusual name that the Old Ones chose for me when I was a hatchling. Like you, I was hatched during the generation when the humans were beaming down the _SUPERCONDUCTIVITY_ section of their encyclopedia. The theories of superconductivity revolutionized our understanding of the interior of our home star. It made quite an impression on everyone to learn that we are floating on a crystalline crust over a liquid core of superfluid neutrons."
 
-"All right&mdash;the gravimotive effect," Helium-Two said. "Anyway, the gravitational engineers did a good job on the design. The antigravity machine is a lot more efficient and compact than I thought it would be when I took on the job of managing the design and construction contract."
+"All right---the gravimotive effect," Helium-Two said. "Anyway, the gravitational engineers did a good job on the design. The antigravity machine is a lot more efficient and compact than I thought it would be when I took on the job of managing the design and construction contract."
 
 Helium-Two went around the bunker to the entrance in the rear. "Come inside, then we will give the machine its first try. We will only take it to half-power in this first trial. We won't try to make the gravity force go negative, but there should be plenty of interesting effects when we get to zero gravity."
 
@@ -49,7 +49,7 @@ Super-Fluid could almost visualize the Einstein gravity fields generated by the 
 
 "So far it has all been Einstein antigravity fields," Helium-Two whispered to him. "Very shortly the hyper-nonlinear portion of your theory should take over and we should get the contraction of the Einstein fields into a region at the center."
 
-They watched tensely as the crust started to flow back to fill in the depression&mdash;more slowly this time&mdash;while the whine of the pumps moved to higher and higher pitch. Soon the crust was nearly what it had been before, but now above the crust at the center of the machine was a distortion in the atmosphere.
+They watched tensely as the crust started to flow back to fill in the depression---more slowly this time---while the whine of the pumps moved to higher and higher pitch. Soon the crust was nearly what it had been before, but now above the crust at the center of the machine was a distortion in the atmosphere.
 
 "Why can we see the region?" Helium-Two asked. "It can't be a distortion in space-time caused by strong gravity fields. The gravity is less there than it is here."
 
@@ -77,12 +77,12 @@ Helium-Two replied, "Those X-ray lights are not just for illumination, they are 
 
 He returned. "I had the engineer set the servo control so that the crystal would rotate while staying in place."
 
-They both watched as the seemingly empty space suddenly sparkled into a brilliant flash of light&mdash;then winked off again.
+They both watched as the seemingly empty space suddenly sparkled into a brilliant flash of light---then winked off again.
 
-"You wouldn't think that something with a density of only a few grams per cubic centimeter would be visible at all&mdash;much less be so brilliant," Helium-Two said.
+"You wouldn't think that something with a density of only a few grams per cubic centimeter would be visible at all---much less be so brilliant," Helium-Two said.
 
 "It is because the crystal structure reflects the X-rays when the atomic planes of the crystal are at just the right angle between one of the lights and one of our eyes," Super-Fluid explained. "I have been watching the pattern carefully as it rotates. If I am not mistaken, that is a crystal with a cubic lattice structure. What did you say the seed material was?"
 
 "Carbon," Helium-Two said.
 
-"I think that is what the humans call a diamond," Super-Fluid said. "They were right&mdash;it is pretty."
+"I think that is what the humans call a diamond," Super-Fluid said. "They were right---it is pretty."

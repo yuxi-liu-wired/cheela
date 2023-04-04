@@ -3,7 +3,7 @@
 
 "We first have a report from Captain Fixed-Star, Space Operations, East," Hohmann-Transfer announced. An aging captain moved to the speaker's treadle and activated a display on everyone's taste screen.
 
-"Our total space force consists of three space stations&mdash;East Pole, West Pole, and Polar Orbiting. Nominal permanent crew is twenty-four each. We lost a number of those who happened to be on the ground during the starquake. With no contact from Space Operations Headquarters on Egg, and with retired Admiral Steel-Slicer off on the call-back mission with Captain Far-Ranger, Admiral Hohmann-Transfer, as ranking active officer, is Acting Commander of all Space Operations.
+"Our total space force consists of three space stations---East Pole, West Pole, and Polar Orbiting. Nominal permanent crew is twenty-four each. We lost a number of those who happened to be on the ground during the starquake. With no contact from Space Operations Headquarters on Egg, and with retired Admiral Steel-Slicer off on the call-back mission with Captain Far-Ranger, Admiral Hohmann-Transfer, as ranking active officer, is Acting Commander of all Space Operations.
 
 "In addition to the assigned space force personnel, we have 16 civilians on East Pole Station who are refugees from the Space Fountain. There are six explorer ships, four cargo snips, and eleven scout ships out in deep space on exploration missions. Our total inventory is 287 personnel, three space stations, six explorer ships, six cargo ships, twelve scout ships, four jumpcraft with no jump loops to jump to, two catapult-lifts with no catapult to drop to, and three shuttlecraft with no Space Fountain to shuttle to."
 
@@ -23,7 +23,7 @@ A young ensign high in the rear spoke shrilly into his vibration pickup. "I doub
 
 "Our next report is from Lieutenant Staring-Sensor, Egg Resources Monitor," said Admiral Hohmann-Transfer.
 
-"According to Doctor of Crustallogy Shear-Wave, our expert on crustquakes, what happened on Egg was _not_ a crustquake, but a much more severely damaging phenomenon called a 'starquake' by the humans. Such a thing occurs only rarely-even at human timescales&mdash;so we never expected it to happen to Egg. During a starquake, if the ground movement doesn't kill you, the electromagnetic heating will, and for those still left alive, the gamma-ray radiation levels are lethal."
+"According to Doctor of Crustallogy Shear-Wave, our expert on crustquakes, what happened on Egg was _not_ a crustquake, but a much more severely damaging phenomenon called a 'starquake' by the humans. Such a thing occurs only rarely-even at human timescales---so we never expected it to happen to Egg. During a starquake, if the ground movement doesn't kill you, the electromagnetic heating will, and for those still left alive, the gamma-ray radiation levels are lethal."
 
 Staring-Sensor moved his tread, and a map appeared on everyone's screen.
 
@@ -61,7 +61,7 @@ Qui-Qui became concerned. "Do you see any signs of life anywhere? If it isn't to
 
 Qui-Qui turned off the communication set. "Well, Quick-Quieter," she said out loud to herself. "It looks like you're through with acting for a while. This is the _real_ thing. As the admiral said, 'We've got to find somebody else.'"
 
-She thought about using the flyer, but decided against it. Until she found a way to recharge the accumulators, she would save the energy for the communications set. There were a number of towns nearby that she could check out on tread, including the home town of her clan. She hoped she would find someone alive there. Subconsciously twitching the clan totem in her heritage pouch, the thought of all her close friends in the clan&mdash;the elders, the hatchlings, the _eggs!_ The thought of her clan's eggs and hatchlings lying unattended moved her to instant action.
+She thought about using the flyer, but decided against it. Until she found a way to recharge the accumulators, she would save the energy for the communications set. There were a number of towns nearby that she could check out on tread, including the home town of her clan. She hoped she would find someone alive there. Subconsciously twitching the clan totem in her heritage pouch, the thought of all her close friends in the clan---the elders, the hatchlings, the _eggs!_ The thought of her clan's eggs and hatchlings lying unattended moved her to instant action.
 
 Within sethturns she had the flyer skimming along the surface to White Rock City, the home of the White Rock Clan. She knew exactly where the clan hatchery was, since she had left an egg there only two greats of turns ago.
 

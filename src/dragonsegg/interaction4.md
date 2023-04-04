@@ -31,7 +31,7 @@ Soother turned and rejoined her chief advisors, Soother's-First and Soother's-Pr
 
 "Then again," Soother's-Pride said, "if he gets too difficult while he is here, we could arrange for him to flow."
 
-"No," Soother remonstrated, "I don't think that will be necessary. After all, the whole object of my reign is to soothe away these barbaric instincts in my people, so that in future generations they will act in a civilized manner&mdash;as the humans do."
+"No," Soother remonstrated, "I don't think that will be necessary. After all, the whole object of my reign is to soothe away these barbaric instincts in my people, so that in future generations they will act in a civilized manner---as the humans do."
 
 "Shall it be Deadly-Sting then?" Soother's-First asked.
 
@@ -43,7 +43,7 @@ Soother turned and rejoined her chief advisors, Soother's-First and Soother's-Pr
 
 Soother's-Pride watched his mother flow off toward the Sky-Talk compound, a squad of troopers automatically shaping a chevron formation about her, their burly bodies acting as pathbreakers for her in both the hard and the soft directions. As she moved off, Soother's-Pride heard her tread muttering as she moved.
 
-"What shall I name it? Soother's-Sting? Who ever heard of a soothing sting? Soother's-Deadly? No&mdash;that's worse..."
+"What shall I name it? Soother's-Sting? Who ever heard of a soothing sting? Soother's-Deadly? No---that's worse..."
 
 As Soother approached the Sky-Talk compound, she headed directly for the library and was careful to avoid the Comm complex. The last thing she wanted to be bothered with was the fawning presence of Soother's-Worry.
 
@@ -103,7 +103,7 @@ The troop commander hesitated, for to kill unarmed thinkers who had only done th
 
 "I will, Mother," he said.
 
-"But don't count on it," she cut in abruptly. "For I intend to come back&mdash;younger than you." Her tendril whipped off his topside and shrank back into her surface. She moved off toward the waiting scientists.
+"But don't count on it," she cut in abruptly. "For I intend to come back---younger than you." Her tendril whipped off his topside and shrank back into her surface. She moved off toward the waiting scientists.
 
 "You may proceed," she said.
 
@@ -151,7 +151,7 @@ The troop commander felt an angry muttering among his warriors. Although they we
 
 "You," he ordered. "You are now commander of this troop. Take command and take this traitor into custody!"
 
-The squad leader hesitated. Then with the repressed violence of someone who has seen her whole clan-oriented life disrupted by Soother, who kept track of her eggs like a perverted Old One, she vibrated a harsh reply back through the crust, "I take orders from my commander, not from you&mdash;you clanless mother-lover!"
+The squad leader hesitated. Then with the repressed violence of someone who has seen her whole clan-oriented life disrupted by Soother, who kept track of her eggs like a perverted Old One, she vibrated a harsh reply back through the crust, "I take orders from my commander, not from you---you clanless mother-lover!"
 
 The vehemence of the reply startled Soother's-First. He looked through the mass of trooper eyes, looking for support, but found none.
 

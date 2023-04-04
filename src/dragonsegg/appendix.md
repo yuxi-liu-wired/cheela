@@ -20,7 +20,7 @@ The large Mount Exodus volcano in the northern hemisphere of Dragon's Egg is a v
 
 Starquakes involve the drop of a lava shield or mountain range by a few millimeters in the 67-billion-gee gravity field of the star. Starquakes in several pulsars have been detected from the Earth by observing the slight decrease in the period of the pulsar due to the decrease in inertia of the star from the lowering of the mountain range.
 
-Dragon's Egg was the product of a supernova explosion that occurred about 500,000 years ago at a distance of 50 light-years from the Solar System. In the process of formation, the neutron star/pulsar acquired a significant proper velocity of 30 km/sec (one light-year in 10,000 years or 6 AU in one year). The star was first discovered by space scientist V. Sawlinski in 2020 (see Reference 1). He detected its radio pulsations using the CCCP-ESA (See Acronyms&mdash;Ancient National Organizations) Out-of-the-Ecliptic probe, which was 200 AU up out of the planetary ecliptic plane. (See Figure 3 showing the relative position of Dragon's Egg, Sol, and the OE probe in 2020.)
+Dragon's Egg was the product of a supernova explosion that occurred about 500,000 years ago at a distance of 50 light-years from the Solar System. In the process of formation, the neutron star/pulsar acquired a significant proper velocity of 30 km/sec (one light-year in 10,000 years or 6 AU in one year). The star was first discovered by space scientist V. Sawlinski in 2020 (see Reference 1). He detected its radio pulsations using the CCCP-ESA (See Acronyms---Ancient National Organizations) Out-of-the-Ecliptic probe, which was 200 AU up out of the planetary ecliptic plane. (See Figure 3 showing the relative position of Dragon's Egg, Sol, and the OE probe in 2020.)
 
 At the time of its discovery in 2020, Dragon's Egg was at a distance of 2300 AU from earth. When the humans finally arrived at the star in the first interstellar spacecraft, St. George (see St. George), the distance had narrowed to 2120 AU. At the time of this edition (2064) the star is at a distance of about 2040 AU. It will reach its point of closest approach of 250 AU in about 300 years, then recede again. Some perturbation of the outer planets is expected, but there should be no significant effects on the orbit of Earth.
 
@@ -35,7 +35,7 @@ By the time the humans discovered Dragon's Egg, life forms had evolved on the ne
 ![](fig4.jpg)
 ##### Figure 4. Northern Constellations in 2020
 
-The dominant animal life forms on the star are called cheela. Since they are intelligent, the cheela have roughly the same complexity as humans. That implies that they have the same number of nuclei, so it is not surprising that they weigh about the same as humans&mdash;70 kg. The cheela are flat, amoeba-type creatures about 2.5 mm in radius (0.5 cm in diameter), and 0.5 mm high, with a density of 7 million g/cc.
+The dominant animal life forms on the star are called cheela. Since they are intelligent, the cheela have roughly the same complexity as humans. That implies that they have the same number of nuclei, so it is not surprising that they weigh about the same as humans---70 kg. The cheela are flat, amoeba-type creatures about 2.5 mm in radius (0.5 cm in diameter), and 0.5 mm high, with a density of 7 million g/cc.
 
 The atomic nuclei that make up the cheela do not have captive electron clouds to keep them isolated from each other, but instead share a "sea" of free electrons. Because of the resulting close proximity of the nuclei, it is as easy for cheela nuclei to exchange neutrons as it is for human atoms to exchange electrons. The nuclei couple into "nuclear bonded molecules" by neutron exchange. Since the cheela use nuclear coupling instead of molecular coupling in their bodies, their rate of living is about one million times that of humans.
 
@@ -49,7 +49,7 @@ Even the nuclei in the bodies of the cheela have their aspect ratio changed as m
 
 The actual cheela body is, of course, much more complex than the stereotyped diagrams of Figure 5. A more lifelike picture is shown in the sketch in Figure 6. This was drawn from memory by the Leonardo da Vinci of Dragon's Egg (and first cheela Keeper-of-the-Sender), Troop Commander/Astrologer Swift-Killer. The Trooper in the drawing is Squad Leader North-Wind (identified by his two-button insignia of rank). He is holding a short sword and a dragon tooth (although squad leaders did not usually carry the long spear). The two puckered sections in his side are either carrying pouches or eating orifices. The small seminal fluid ejection holes under each eye-stub are the primary sex organs unique to a male cheela.
 
-The cheela communicate by strumming the crust with their lower surfaces (tread) to produce directed vibrations in the neutron star crust. The strong magnetic fields polarize the surface material and since the crust has a nuclei lattice and an electron sea, the cheela have three modes of talking: long-talk&mdash;along the magnetic field using Rayleigh-type compressional waves; short-talk&mdash;transverse (shear) waves for communication across the magnetic field lines; and fast-talk&mdash;using electromagnetic fields generated by their bodies to excite the electron sea. Since fast-talk travels at the speed of light, it is somewhat faster than the two acoustic waves, but it is more highly attenuated and is used mostly for whispering.
+The cheela communicate by strumming the crust with their lower surfaces (tread) to produce directed vibrations in the neutron star crust. The strong magnetic fields polarize the surface material and since the crust has a nuclei lattice and an electron sea, the cheela have three modes of talking: long-talk---along the magnetic field using Rayleigh-type compressional waves; short-talk---transverse (shear) waves for communication across the magnetic field lines; and fast-talk---using electromagnetic fields generated by their bodies to excite the electron sea. Since fast-talk travels at the speed of light, it is somewhat faster than the two acoustic waves, but it is more highly attenuated and is used mostly for whispering.
 
 
 ![](fig5.jpg)
@@ -144,22 +144,22 @@ Figure 9 through 12 are diagrams of the three decks and a side view of the scien
 The human explorers of Dragon's Egg used gravitational techniques to move into and survive in a synchronous orbit around the neutron star. The prime mover for all of the gravitational maneuvers near Dragon's Egg was the large deorbiter mass. Originally a small planetoid about 1000 kilometers across, it had been picked up (along with other asteroidal debris) by the neutron star in its wanderings. The planetoid was condensed by the humans into an ultra-dense mass one kilometer in diameter by injection of magnetic monopoles.
 
 ![](fig9.jpg)
-##### Figure 9. Dragon Slayer&mdash;Side View (Arrows indicate steady component of gravity tides)
+##### Figure 9. Dragon Slayer---Side View (Arrows indicate steady component of gravity tides)
 
 There were actually two large condensed asteroids made at the same time. One was used in a close-encounter gravity whip to drop the deorbiter down from its original orbit out in the "asteroid belt" of the neutron star into the desired orbit. This orbit was a highly elliptical one with a perihelion at 406 km and aphelion at 100,000 km, where the human interstellar ship, St. George, moved in a 12.82-minute circular orbit.
 
 ![](fig10.jpg)
-##### Figure 10. Dragon Slayer&mdash;Top Deck
+##### Figure 10. Dragon Slayer---Top Deck
 
 The elliptical orbit of the deorbiter mass (called Bright's Messenger by precontact cheela) had a period of 4.56 minutes or 9.53 greats of turns of the neutron star. It thus took it only 2.28 minutes or 4.77 greats of turns to drop from the safe circular orbit of St. George to the dangerous synchronous orbit at 406 km above Dragon's Egg.
 
 The gravity field of the neutron star is 400 million gees at the 406 kilometer altitude of Dragon Slayer. However, since the spacecraft was in orbit around the star, most of that 400 million gees was canceled by the fact that it was in a "free-fall" orbit. However, an object is only in free fall at its exact center of mass. When the middle of your body is in a free-fall orbit around a neutron star at 406332 m distance it will feel nothing. But if you are oriented with your feet toward the star, your feet, which are at 406331 m away from the star, are pulled by a gravity force that is 202 gees more than your middle, while your head, at 406333 m distance, is being pulled by a force that is 202 gees less than your middle. If your body is oriented in a direction tangent to the neutron star, your head and feet will feel a 101-gee compression instead of a 202-gee pull. A human cannot survive at a distance of 400 km from a neutron star without some kind of protection from these tidal forces.
 
 ![](fig11.jpg)
-##### Figure 11. Dragon Slayer&mdash;Main Deck
+##### Figure 11. Dragon Slayer---Main Deck
 
 ![](fig12.jpg)
-##### Figure 12. Dragon Slayer&mdash;Lower Deck
+##### Figure 12. Dragon Slayer---Lower Deck
 
 To protect the humans in Dragon Slayer from these residual gravity tidal forces, six tidal compensator masses were placed in a 200-meter radius ring about the science capsule and arranged so that the plane of the six masses was always at right angles to the direction to the neutron star. The compensator masses were made from asteroids about 250 km in diameter that were condensed to 100 m in diameter.
 
@@ -184,7 +184,7 @@ At the time of this writing (2063), the knowledge of the antigravity and other s
 
 [^1]: V. Sawlinski et al., "A nearby short period pulsar," _Astrophysical Journal,_ 561, 268 (2020)
 
-[^2]: S-Y Wang, "The Egg of the Dragon&mdash;Sol's Nearest Neighbor," _Astro. Sinica,_ 83, 1789 (2020)
+[^2]: S-Y Wang, "The Egg of the Dragon---Sol's Nearest Neighbor," _Astro. Sinica,_ 83, 1789 (2020)
 
 [^3]: F. D. Drake, "Life on a Neutron Star," _Astronomy,_ Vol. 1, No. 5, 5 (Dec. 1973)
 

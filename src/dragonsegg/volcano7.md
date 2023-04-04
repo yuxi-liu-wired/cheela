@@ -1,5 +1,5 @@
 ## 16:45:35 GMT SUNDAY 22 MAY 2050
-Great-Crack was a pack rat. Although one of the better hunters in the clan, with two Flow Slow kills to her credit, she was the constant butt of jokes from her hunting mates because of her habit of picking up and carrying anything she found that looked interesting&mdash;and because of her highly developed sense of curiosity, practically everything looked interesting to her.
+Great-Crack was a pack rat. Although one of the better hunters in the clan, with two Flow Slow kills to her credit, she was the constant butt of jokes from her hunting mates because of her habit of picking up and carrying anything she found that looked interesting---and because of her highly developed sense of curiosity, practically everything looked interesting to her.
 
 When it came time for the hunting party to load up with ripe pods for the long journey back to the clan, Great-Crack had to unpouch her trinkets so she could load up her pouches with pods. She went over to a shallow depression in the crust; amid ribald calls of "What are you doing? Laying three eggs at once?", followed by "No, just one, but it's the size of a Flow Slow!", she dumped her precious pile of odds and ends, with the heavier ones around the pile in a low wall that she hoped would protect them from the constant winds. With luck, she would be able to pick them up again when they returned with the clan.
 
@@ -19,7 +19,7 @@ They all looked up from their crouched, streamlined positions in back of him and
 
 The group soon reached the edge of Bright's Heaven. They all cast longing looks behind with a few of their eyes as Bright dipped below the horizon and their sense of being lost returned. Blue-Flow kept the break periods short since they were all in good shape and well fed, and they made it quickly back across the "feeling lost" territory with its intense smoky sky flowing to the west.
 
-Their sense of direction slowly returned, and Blue-Flow felt much better now that his instincts finally agreed with his logic. They were following their previous track very closely, and Blue-Flow was disturbed that he could read their spoor. They must have been extremely discouraged to have been so careless. Well&mdash;they were on their way back now, and that spoor of many turns ago would just lead any trackers astray if they kept their present track clean. When it came his turn at the rear of the column, he looked back and was pleased with the fact, that except for a quickly fading whitish track from the heat of their bodies warming the crust, he could see almost no evidence of their passage.
+Their sense of direction slowly returned, and Blue-Flow felt much better now that his instincts finally agreed with his logic. They were following their previous track very closely, and Blue-Flow was disturbed that he could read their spoor. They must have been extremely discouraged to have been so careless. Well---they were on their way back now, and that spoor of many turns ago would just lead any trackers astray if they kept their present track clean. When it came his turn at the rear of the column, he looked back and was pleased with the fact, that except for a quickly fading whitish track from the heat of their bodies warming the crust, he could see almost no evidence of their passage.
 
 At the next break, most of them had another pod to eat. As was her usual custom, Great-Crack kept all the seeds from the pod in case the clan needed more. Blue-Flow noticed that she had only added a pod skin to the burial pit and came over to talk to her.
 
@@ -81,7 +81,7 @@ There was a long pause as Weary-Tread evaluated her chances. She could still be 
 
 Blue-Flow turned and said to them all, "I am Leader of the Clan. Does anyone challenge me?" There was no reply, and, with the formal ceremony over, his tone changed as he took command.
 
-"I have good news. I have found a new land for us. A clean land with no smoke. A good land with no enemies, with much game and with many, many petal plants that have never been picked. It is a long distance away in the hard direction and the trail will be harsh and difficult. But we will go, for a new God Star and His Heaven&mdash;Bright's Heaven&mdash;waits for us!"
+"I have good news. I have found a new land for us. A clean land with no smoke. A good land with no enemies, with much game and with many, many petal plants that have never been picked. It is a long distance away in the hard direction and the trail will be harsh and difficult. But we will go, for a new God Star and His Heaven---Bright's Heaven---waits for us!"
 
 For the next few turns, Blue-Flow had everyone who was not out hunting meat busy in the fields picking the edible pods and storing them in the pod bin. He was outside the bin with Great-Crack, looking with satisfaction at the pods spilling out of the opening.
 
@@ -133,13 +133,13 @@ She moved toward him while he backed out of the pod bin. "No use endangering the
 
 The clan gathered around them as they moved together into a clear place between the stockades. Blue-Flow watched with a combination of fear and amusement as his opponent emptied her pouches of tools and trinkets, formed a dueling manipulator, and raised her spear.
 
-"Blue-Flow is in good shape," Great-Crack thought as she made a neat pile of her precious "unusual things." "I will need every advantage I can get to beat him. However, he must not be allowed to win&mdash;for he will lead the clan into sure starvation!"
+"Blue-Flow is in good shape," Great-Crack thought as she made a neat pile of her precious "unusual things." "I will need every advantage I can get to beat him. However, he must not be allowed to win---for he will lead the clan into sure starvation!"
 
-She finally turned, raised her spear and repeated her challenge, "Who is Leader of the Clan, Old One?" She paused&mdash;then punctuated the challenge by ejecting her half-formed egg sac from the protection of her body onto the crust between them. The clan looked in shock at the precious, tiny eggling wriggling out the last of its life among the glowing remains of its ruptured egg-sac.
+She finally turned, raised her spear and repeated her challenge, "Who is Leader of the Clan, Old One?" She paused---then punctuated the challenge by ejecting her half-formed egg sac from the protection of her body onto the crust between them. The clan looked in shock at the precious, tiny eggling wriggling out the last of its life among the glowing remains of its ruptured egg-sac.
 
-Blue-Flow alternated his horrified eyes between the cooling eggling and the stern visage of Great-Crack. "She is really determined to win. Could it be that she is right, and there are not enough pods?" He shifted his spear. "No matter&mdash;things have gone too far to stop now."
+Blue-Flow alternated his horrified eyes between the cooling eggling and the stern visage of Great-Crack. "She is really determined to win. Could it be that she is right, and there are not enough pods?" He shifted his spear. "No matter---things have gone too far to stop now."
 
-Blue-Flow returned the formal reply, "I am&mdash;Hatchling!" He lunged at her.
+Blue-Flow returned the formal reply, "I am---Hatchling!" He lunged at her.
 
 It was not a pretty fight. Both were encumbered by the rule that they had to maintain control of their spears to keep from automatically losing, but were not allowed to use the points for cutting until the final ceremonial slash of the loser by the winner. They wallowed, struck at each other's eye-stubs with the sides of their spears, trod one another's edges, tried to wrest the spear from the other's grasp, and slapped each other with muscular pseudopods in an attempt to deliver a knockout shock to the brain-knot.
 
@@ -175,9 +175,9 @@ Soon she had the seed bin replaced with a smaller one containing a large number 
 
 "The old way was very simple, Great-Crack," the Old One said. "One seed in the seed bin for one pod in the pod bin. But this does not make sense. How can one seed, even a cluster seed, mean many pods?"
 
-Great-Crack tried hard to explain, and ran into the phenomenon that is often encountered by one trying to teach someone something&mdash;the teacher often learns something new herself. Great-Crack learned to count past three.
+Great-Crack tried hard to explain, and ran into the phenomenon that is often encountered by one trying to teach someone something---the teacher often learns something new herself. Great-Crack learned to count past three.
 
-"Now look, Old One, I will go through it carefully. Here is one pod, and one oval seed. Here is another pod next to the first pod, and another oval seed next to the first seed. That's two&mdash;and now three." Great-Crack moved the third pod and seed into place, then reached for another set.
+"Now look, Old One, I will go through it carefully. Here is one pod, and one oval seed. Here is another pod next to the first pod, and another oval seed next to the first seed. That's two---and now three." Great-Crack moved the third pod and seed into place, then reached for another set.
 
 "Now this many is..." Great-Crack fumbled for the nonexistent word. "...the same number of ways that you can travel: east, west, and the two hard directions." She continued adding sets. "And this many is the same as the number of fangs on a Swift. And this many is the number of petals in a petal plant..."
 
@@ -187,7 +187,7 @@ The accountant dipped each of his dozen eyes, one after the other, as he careful
 
 The lesson really didn't sink in the first time, but after many repetitions even the accountant was using one, two, three, travel, swift, petal... all the way up to a dozen, as if he had learned it as a hatchling. But soon even that did not suffice, for there were so many pods from the harvest that Great-Crack had to invent the name "great" for a dozen dozen of pods. The accountant was very satisfied with her choice of word, for it obviously represented a "great" number of objects.
 
-With the accountant's help, Great-Crack checked the results of the harvest. First the pebbles, one for each member of the clan, were placed in a column, then across the bottom were placed cluster seeds, only now the unique collection of cluster seeds that Great-Crack had accumulated during her trip back (and which measured the distance to Bright's Heaven in terms of pods) had been replaced by a concept&mdash;a number&mdash;a petal worth of cluster seeds plus a swift of oval ones.
+With the accountant's help, Great-Crack checked the results of the harvest. First the pebbles, one for each member of the clan, were placed in a column, then across the bottom were placed cluster seeds, only now the unique collection of cluster seeds that Great-Crack had accumulated during her trip back (and which measured the distance to Bright's Heaven in terms of pods) had been replaced by a concept---a number---a petal worth of cluster seeds plus a swift of oval ones.
 
 The forecast was not good. As the cluster seeds grew out from each pebble, Great-Crack came to the end of the seeds before she came to the last of the pebbles. Great-Crack felt once again the frustration of being Leader of the Clan. The volcano had become more active and the sky grew steadily worse. With their vision of the sky clouded, the crops grew poorly and the harvests were meager. Their neighbors to the east and west were hungry and restless and there had been many more attacks on the fields of the clan. They must go. But there were not enough pods.
 
@@ -219,7 +219,7 @@ Great-Crack looked at the approaching Aged One. "It is West-Light, one of the mo
 
 West-Light stopped and emptied out his pouches. He had been carrying some half-ripe pods from the fields that must have become edible since the trek had started, along with some nearly ripe wild pods.
 
-"We were worried that perhaps there might not be enough food to keep the hatchlings healthy," West-Light said. "So we gathered what we could these past few turns before you got too far away for me to reach. Here&mdash;take good care of the hatchlings."
+"We were worried that perhaps there might not be enough food to keep the hatchlings healthy," West-Light said. "So we gathered what we could these past few turns before you got too far away for me to reach. Here---take good care of the hatchlings."
 
 Great-Crack whispered, "Thank you, West-Light." She moved forward to pick up his meager offering. She then stared as the thinnest cheela she had ever seen slowly pushed his way back to their now abandoned camp.
 
@@ -235,13 +235,13 @@ The trek was dreary. The progress was much slower than Great-Crack had counted o
 
 With their enforced rest, the clan was in better shape, and with the example of what happened to stragglers still etched in their minds, there were very few times that the gap opened by the pathbreakers was allowed to fail, and the clan made good time for a few turns. But it soon became obvious to Great-Crack that they were in serious trouble. At the next break she got out the pebbles that represented the members of the clan, and after discarding the ones that had been killed in the interchange with the attackers, she laid them out in a column.
 
-She knew that they were still far from Bright's Heaven, for they had just started to get to the "lost feeling" region. She made an estimate of how many turns it would take them to reach Bright's Heaven and laid those cluster seeds out in a row. She then started to fill in the diagram with seeds representing the pods left. There was no question about it&mdash;they were short by many, many pods.
+She knew that they were still far from Bright's Heaven, for they had just started to get to the "lost feeling" region. She made an estimate of how many turns it would take them to reach Bright's Heaven and laid those cluster seeds out in a row. She then started to fill in the diagram with seeds representing the pods left. There was no question about it---they were short by many, many pods.
 
-She stared at the large empty space in the diagram, and her imaginative brain turned the empty space into empty cheela. It was now time&mdash;she would have to risk the chance of another attack and split her forces.
+She stared at the large empty space in the diagram, and her imaginative brain turned the empty space into empty cheela. It was now time---she would have to risk the chance of another attack and split her forces.
 
 The clan grew restless as the break grew longer while Great-Crack calculated. She finally called her warriors together and explained the situation to them. Blue-Flow had never really learned why the seeds and pebbles told things to Creat-Crack that he could not see, but he now was very glad that Great-Crack had prevented him from leading the clan off many turns ago. With far fewer pods, he would have had them all dead by now. But he didn't need pebbles and seeds to tell him that there were not enough pods for them to make it to Bright's Heaven.
 
-"Blue-Flow," she said, "I want you to lead a hunting party to Bright's Heaven and bring back pods for us." She looked down at the diagram and said, "You will only need a Slink's worth of pods to keep you going. You are going to arrive very hungry&mdash;but the ripe pods at the end of the journey will make it worthwhile."
+"Blue-Flow," she said, "I want you to lead a hunting party to Bright's Heaven and bring back pods for us." She looked down at the diagram and said, "You will only need a Slink's worth of pods to keep you going. You are going to arrive very hungry---but the ripe pods at the end of the journey will make it worthwhile."
 
 Blue-Flow and the others in the hunting party emptied out most of their pouches. Some of them attempted to leave without taking any pods, preferring to leave them for the hatchlings while making do with bravado, but Great-Crack, trusting in her calculations, made them take their ration of pods. The hunting party took off and was rapidly out of sight of the slowly moving clan.
 
@@ -259,7 +259,7 @@ The kill was easy, since the Flow Slow had never tasted a dragon crystal spear b
 
 As they started to move away from the carcass, Bad-Turn looked back at it and said, "Too bad we can't carry that whole carcass back to the clan. If they had all that meat to eat, there would be no worry about food for the rest of the trip."
 
-Blue-Flow replied, "I thought about that too. We could try to push a large chunk of meat ahead of us, but we can carry in our pouches more than we can push&mdash;especially when we have to go in the hard direction. Besides, pushing the meat through the ashes over that whole distance will ruin it."
+Blue-Flow replied, "I thought about that too. We could try to push a large chunk of meat ahead of us, but we can carry in our pouches more than we can push---especially when we have to go in the hard direction. Besides, pushing the meat through the ashes over that whole distance will ruin it."
 
 "If we only had some way to keep it out of the ashes," murmured Bad-Turn, and he went over to one of the large Flow Slow plates and looked at it. It was large, half as big as he was. It was a flat square plate of material almost as hard as dragon crystal. At the front and back edges were curved lips that had been attached to the skin of the Flow Slow. Bad-Turn flowed onto the plate, thinking, "This could hold a lot of meat and pods, much more than I could carry in my pouches." He flowed to the front lip and stayed there for a moment, his back edge hanging back on the front lip of the plate.
 
@@ -291,4 +291,4 @@ With their strength renewed by the meat and ripe pods, the clan moved off at goo
 
 "O Great Bright One. Brightest of all in the sky," Great-Crack intoned, all of her dozen eyes staring at the bright star while her undertread rhythmically pulsed the crust. "We thank You for saving us from the rolling walls of blue-white fire. We thank You for saving us from the choking clouds of poisonous red smoke that kill the plants and still the eggs. We thank You for leading us out of the land of starvation and lostness to Your Heaven."
 
-Her eyes turned from the star and looked around at the clan. "Let us go now to claim our reward&mdash;a Heaven where there are no enemies and plenty of food and game. Come&mdash;all of you&mdash;into Bright's Heaven."
+Her eyes turned from the star and looked around at the clan. "Let us go now to claim our reward---a Heaven where there are no enemies and plenty of food and game. Come---all of you---into Bright's Heaven."

@@ -26,7 +26,7 @@ It was still a few methturns to turnfeast, so Heavy-Egg and Glowing-Tread treate
 
 "Like this?" she said, leaning heavily on him and letting her fleshy eyeflaps rub against his topside edge. "It's a good thing you are there to lean on or I might topple over and bruise something."
 
-They got real friendly again, and she even let him reach into her heritage pouch to feel her clan totem. However, the totem wasn't familiar&mdash;so she wasn't a member of one of the out-clan families related to his clan. She was willing to rent a pad-room and go further, but Heavy-Egg still felt a strong allegiance to his in-clan and its out-clan families. Any egg he might be responsible for must end up in his clan hatching pens. There were already too many clanless hatchlings on the streets.
+They got real friendly again, and she even let him reach into her heritage pouch to feel her clan totem. However, the totem wasn't familiar---so she wasn't a member of one of the out-clan families related to his clan. She was willing to rent a pad-room and go further, but Heavy-Egg still felt a strong allegiance to his in-clan and its out-clan families. Any egg he might be responsible for must end up in his clan hatching pens. There were already too many clanless hatchlings on the streets.
 
 Heavy-Egg parted reluctantly with Glowing-Tread. She found someone else and went off to turnfeast with him. Frustrated, Heavy-Egg invested a few stars in a private holovid screen room and watched the rest of the Qui-Qui Show.
 

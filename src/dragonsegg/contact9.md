@@ -5,9 +5,9 @@ She was in a hurry to get the laser communication dish repositioned, but the cre
 
 Ship's doctor Cesar Ramirez Wong came flying headlong into the upper room, performed a neat somersault, and absorbed his momentum on the ceiling with a carefully programmed flexing of his knees. He rebounded slightly and soon was hanging upside-down in front of her. She noticed idly that the tidal compensators were not working perfectly on the upper deck, for he was slowly drifting up to the ceiling as he read off the check list.
 
-"...main and emergency air tanks&mdash;full. Time to put on your helmet and check air and cooling," he said.
+"...main and emergency air tanks---full. Time to put on your helmet and check air and cooling," he said.
 
-Amalita was ahead of him and her muffled voice spoke from behind the visor. "Helmet on&mdash;air and cooling fine."
+Amalita was ahead of him and her muffled voice spoke from behind the visor. "Helmet on---air and cooling fine."
 
 He glanced back at the checklist. "Magni-stiction boots..." Amalita flicked a switch on her chest console that rearranged the pseudo-random pattern of the magnetic monopoles in the soles of her boots so that they matched up with the hexagonal pattern of monopoles built into the inner plates and hull of Dragon Slayer.
 
@@ -17,7 +17,7 @@ Electromagnetic boots would have been simpler if Dragon Slayer could have been b
 
 Amalita opened the hatch to the air-lock and went in, dogging the door behind her. She signaled to Cesar through the port and felt her suit stiffen as the pressure dropped. The outer hatch swung in, and Amalita held onto her safety line as she cautiously looked out. Although she had been outside St. George a dozen times on repair jobs in the long journey out to Dragon's Egg, this was the first time she had been outside Dragon Slayer, and she knew the scenery was going to be very confusing. Anything in space that causes confusion is a prime source of accidents, and she had not lived this long by taking chances in out-ship jobs.
 
-Amalita looked out of the air-lock set in the middle of Dragon Slayer. Since the ship was inertially stabilized, the stars remained fixed in the sky. However&mdash;flashing in front of the port five times a second was the bright white globe of Dragon's Egg. At 400 kilometers distance, the 20-kilometer-diameter neutron star was about five times bigger than Sol at Earth and took up an appreciable part of the sky.
+Amalita looked out of the air-lock set in the middle of Dragon Slayer. Since the ship was inertially stabilized, the stars remained fixed in the sky. However---flashing in front of the port five times a second was the bright white globe of Dragon's Egg. At 400 kilometers distance, the 20-kilometer-diameter neutron star was about five times bigger than Sol at Earth and took up an appreciable part of the sky.
 
 "If only we were orbiting around it at a faster rate, so that it would blur out into a ring," she thought. "At five times a second it is right in the visual flicker band and is going to be a real annoyance."
 
@@ -27,7 +27,7 @@ Amalita paused to get accustomed to the sight. There was a bright white globe of
 
 "How are you doing?" Cesar's voice came through the suit communication link.
 
-"Fine," Amalita said. "I'm just waiting here to get used to the whirling scenery. It reminds me of the time back in the Lunar Ballet Academy when I tried to break the _Guinness Book of Records_ mark for the most number of fouettés in a row. After twirling around on one foot for over one hundred turns, I missed my kick, lost my spotting point, and the vertigo got to me&mdash;I don't think things were whirling around as much then as they are now."
+"Fine," Amalita said. "I'm just waiting here to get used to the whirling scenery. It reminds me of the time back in the Lunar Ballet Academy when I tried to break the _Guinness Book of Records_ mark for the most number of fouettés in a row. After twirling around on one foot for over one hundred turns, I missed my kick, lost my spotting point, and the vertigo got to me---I don't think things were whirling around as much then as they are now."
 
 Amalita looked up at the top of Dragon Slayer to the large central turret containing the solar mirror, laser radar, microwave sounder, and other star-oriented instruments. The turret was rotating five times a second, keeping the instruments pointed at Dragon's Egg. "You haven't turned off the turret," she complained. "I can't work on it while it is spinning around."
 
@@ -83,6 +83,6 @@ Her voice was hoarse from the running commentary she had kept up during the chas
 
 Amalita was making her way back to the air-lock, moving her bruised body slowly from one safety ring to another when she saw a suited figure rising from the air-lock to help. She was only too glad to hand over her problems to the welcome crew mate.
 
-"I am sure glad to see you," Amalita said. "Even if only through a red haze. Here&mdash;you take what's left of the laser radar module. Watch out for it&mdash;when it got mashed in the tidal forces of those asteroids several sharp spikes got extruded&mdash;they could nick your suit."
+"I am sure glad to see you," Amalita said. "Even if only through a red haze. Here---you take what's left of the laser radar module. Watch out for it---when it got mashed in the tidal forces of those asteroids several sharp spikes got extruded---they could nick your suit."
 
 "I've got it," Jean said. "Now you get in that air-lock and cycle through. Doc is waiting on the other side with a warm wet compress for that nose. And in case you were wondering, the laser communication link is working fine. The first messages have gone down, and we have already received a reply back through the ultraviolet scanner."

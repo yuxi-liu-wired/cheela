@@ -28,6 +28,6 @@ Another flitter joined them. Riding on top was Watson-Crick, Professor of Humano
 
 "Over a thousand greats ago," Watson-Crick replied. "Could we have a dozen turns, Admiral?"
 
-Star-Glider considered. "I'll give you a half-dozen. Then we'd better get on with the main purpose of the mission&mdash;fix that rocket and rescue the humans."
+Star-Glider considered. "I'll give you a half-dozen. Then we'd better get on with the main purpose of the mission---fix that rocket and rescue the humans."
 
 The humanologists were greatly disappointed that all they had to study was a human head, and _it_ was over two meters from the porthole. But they did what they could and were finished when only five turns were up.

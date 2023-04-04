@@ -24,7 +24,7 @@ The cheela use a base twelve numbering system since they have twelve eyes. The c
 | 800 nsec   | 1/28832 t = blink         | (equiv. to human blink)  |
 
 ## OUR NUCLEONIC FRIENDS
-One can hardly imagine a more alien life form than a cheela. A typical cheela weighs the same as a typical human, about 70 kilograms; but the nuclei in the cheela body have lost their electron clouds, so the nuclei are condensed into a tiny body that is squashed by the high gravity and stretched by the high magnetic field into an oval pancake shape a half-centimeter in diameter and a half-millimeter high&mdash;a little larger than a sesame seed.
+One can hardly imagine a more alien life form than a cheela. A typical cheela weighs the same as a typical human, about 70 kilograms; but the nuclei in the cheela body have lost their electron clouds, so the nuclei are condensed into a tiny body that is squashed by the high gravity and stretched by the high magnetic field into an oval pancake shape a half-centimeter in diameter and a half-millimeter high---a little larger than a sesame seed.
 
 The body is tough and flexible, with a tread on the bottom like that of a slug. Unlike a slug, a cheela can move equally well in any direction. The cheela have twelve eyes spaced around their periphery, giving them 360-degree vision. The eyes are up on stalks like those of a slug, but because of the high gravity the stalk is thicker. The cheela see using the ultraviolet and soft X-rays emitted by the 8200-K glowing surface of Egg.
 

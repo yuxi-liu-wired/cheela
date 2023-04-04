@@ -1,5 +1,5 @@
 ## 06:48:48 GMT MONDAY 20 JUNE 2050
-Three turns before the dedication of the Holy Temple, God's-Chosen knew there was a problem. He had seen the pulsating, multicolored beam go south. But then it had stopped. The time came near, and he looked in vain at the Inner Eye. He could see no beams&mdash;no light of any kind.
+Three turns before the dedication of the Holy Temple, God's-Chosen knew there was a problem. He had seen the pulsating, multicolored beam go south. But then it had stopped. The time came near, and he looked in vain at the Inner Eye. He could see no beams---no light of any kind.
 
 "Bright is testing my faith," he said to himself. "For many greats of turns the people have had to accept my word that the Blessing of Bright was coming. Now I am as blind as they are. I must have faith."
 
@@ -53,7 +53,7 @@ God's-Chosen gazed upward at the Eyes, longing for the sight of the Blessing. No
 
 Without further word, God's-Chosen moved his pale body through the ring of astrologers, down the mound and out into the multitude, heading for the eastern orifice.
 
-Some of the crowd whispered as he passed, others reached out to touch his hot pale body with a slender tendril. The High Priest, still up on the mound, tried to salvage things by proceeding with the regular worship chants, but no one paid him heed&mdash;not even the chorus.
+Some of the crowd whispered as he passed, others reached out to touch his hot pale body with a slender tendril. The High Priest, still up on the mound, tried to salvage things by proceeding with the regular worship chants, but no one paid him heed---not even the chorus.
 
 As God's-Chosen left the Temple, the multitude of worshipers broke up into bewildered groups. Many had gone without food for a full turn, and they now went out to find something to eat in the overcrowded city.
 
@@ -65,7 +65,7 @@ The High Priest went to discuss the previous turn's events with Hungry-Swift, th
 
 "But I saw! I saw the Blessing coming down!" protested Hungry-Swift.
 
-"Yes&mdash;you may have seen the Blessing of Bright, but this Pink-Eyes person was using the Blessing of Bright to his own advantage," the High Priest replied. "He said that he gave the Word of Bright, and that he was God's-Chosen. But was he? No! Bright chose this way to say that he was a false prophet, for Bright withheld his Blessing before all the multitude."
+"Yes---you may have seen the Blessing of Bright, but this Pink-Eyes person was using the Blessing of Bright to his own advantage," the High Priest replied. "He said that he gave the Word of Bright, and that he was God's-Chosen. But was he? No! Bright chose this way to say that he was a false prophet, for Bright withheld his Blessing before all the multitude."
 
 "You seem to be right," Hungry-Swift agreed.
 
@@ -127,7 +127,7 @@ Pink-Eyes' tread trembled in pain as his body was lowered down over the points. 
 
 In agony, Pink-Eyes attempted to lift his pale body off the agonizing shards of dragon crystal, but with each heave he only sliced his body further. He gave up trying, and slowly spread out as his juices flowed into the crust.
 
-"O Bright," his tortured tread cried in muffled agony, "Bring down your Blessing&mdash;even on these&mdash;for they want you too much."
+"O Bright," his tortured tread cried in muffled agony, "Bring down your Blessing---even on these---for they want you too much."
 
 It was half a turn before the butchering crew was called. There was not much meat on that tiny carcass, and the meat had the same sickly paleness that the skin had. One of the butcher crew sucked at a hunk of meat. "It does not even taste right," she said. "I wouldn't eat this stuff."
 

@@ -1,9 +1,9 @@
 ## 500,000 B.C.
 Buu lay in his leafy arbor nest and looked up at the stars in the dark sky. The hairy young humanoid should have been asleep, but his curiosity kept him awake. A half-million years in the future that twinkling of curiosity would have led his mind out into the universe to explore the mathematical mysteries of relativity. Now...
 
-Buu continued to stare at the bright stars above him. One speck suddenly flared brighter. Frightened&mdash;but fascinated&mdash;Buu watched the growing point of intense light until it went behind a dense tree branch. He would be able to see it again if he went to the nearby clearing. He clambered down from his nest&mdash;into the striped coils of Kaa.
+Buu continued to stare at the bright stars above him. One speck suddenly flared brighter. Frightened---but fascinated---Buu watched the growing point of intense light until it went behind a dense tree branch. He would be able to see it again if he went to the nearby clearing. He clambered down from his nest---into the striped coils of Kaa.
 
-Kaa did not enjoy his kill for long. Things were difficult for him in a world with two suns. The new sun was tiny and white, while the old one was big and yellow. The new sun circled constantly overhead. It never set, and he could no longer catch things at night. Kaa died&mdash;along with other hunters who could not change their habits fast enough.
+Kaa did not enjoy his kill for long. Things were difficult for him in a world with two suns. The new sun was tiny and white, while the old one was big and yellow. The new sun circled constantly overhead. It never set, and he could no longer catch things at night. Kaa died---along with other hunters who could not change their habits fast enough.
 
 For a year the new light shone from above, searing the sky. Then it slowly grew dimmer and dimmer, and within a few years night returned to the northern hemisphere of Earth.
 

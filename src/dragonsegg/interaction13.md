@@ -7,4 +7,4 @@ Most of the crew had the decency to busy themselves elsewhere as the commander o
 
 Clear-Thinker formed some crystalline bones within his body, conformed them into manipulators, took hold of the controls and raised power.
 
-"Never has a nickname for a spacecraft fit so well," thought Clear-Thinker, as the "Flying Toilet" rose from the main expedition spacecraft and moved over to the left viewing port where it stopped&mdash;just a bit less than a meter from the tip of Pierre's nose.
+"Never has a nickname for a spacecraft fit so well," thought Clear-Thinker, as the "Flying Toilet" rose from the main expedition spacecraft and moved over to the left viewing port where it stopped---just a bit less than a meter from the tip of Pierre's nose.

@@ -1,6 +1,6 @@
 ## 06:54:00 GMT TUESDAY 21 JUNE 2050
 
-The gravity tugs were getting worse. A metal drinking flask broke loose in the galley and came shooting up the passageway from the deck below. It flashed by Amalita and headed for one of the science electronics consoles set in the outer wall of the main deck between the portholes. The drinking flask smashed into one of the knobs on the console, and soon there were three missiles shooting back and forth around the main deck&mdash;a dented metal bulb and two sharp plastic knob halves.
+The gravity tugs were getting worse. A metal drinking flask broke loose in the galley and came shooting up the passageway from the deck below. It flashed by Amalita and headed for one of the science electronics consoles set in the outer wall of the main deck between the portholes. The drinking flask smashed into one of the knobs on the console, and soon there were three missiles shooting back and forth around the main deck---a dented metal bulb and two sharp plastic knob halves.
 
 "That does it," Pierre declared. "It's too dangerous out here. Let's get into the tanks!"
 

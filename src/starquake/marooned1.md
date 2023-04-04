@@ -1,7 +1,7 @@
 ## 06:58:07.3 GMT TUESDAY 21 JUNE 2050
 The hunger-twinges in Speckle-Top moved from one eating pouch to another. They got so bad she began to think about the old days in the dump when the garbage sleds from the centertown eating places would come. It was long past turnfeast and she _had_ to get something to eat. The trouble was, the crust around her was too quiet. The clankers would hear her for sure when she pushed the rock away from the end of the tunnel. So she moved to the tunnel entrance and stuck one eye through a crack between the rock and the wall.
 
-"Bright's Curse!" she whispered as she pulled her eye back in&mdash;a clanker was out there. But there was something wrong with her. Putting her eye back out to watch the reaction of the clanker, she moved the rock slightly. A rasping sound radiated out through the crust, but the clanker didn't move. Growing bolder, she pushed the rock aside and flowed out into the still sparkling atmosphere.
+"Bright's Curse!" she whispered as she pulled her eye back in---a clanker was out there. But there was something wrong with her. Putting her eye back out to watch the reaction of the clanker, she moved the rock slightly. A rasping sound radiated out through the crust, but the clanker didn't move. Growing bolder, she pushed the rock aside and flowed out into the still sparkling atmosphere.
 
 Keeping her eyes half-shielded under their flaps, she went over to the clanker. The large body had flowed into a wide oval. A few dull yellow-red eyeballs hung out over their fleshy eyeflaps and the large clanker badges had fallen from their holding sphincters.
 

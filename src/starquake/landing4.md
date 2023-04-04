@@ -143,7 +143,7 @@ He unrolled it until he came to the personal sign at the bottom. "It is a portio
 
 "Who is this Emperor you speak of?" Otis-Elevator asked.
 
-"He is the Mighty One, the Terrible One, the Unforgiving One. The cheela that never flows&mdash;Attila-the-Speckled," said Letter-Reader, his speckled tread trembling at the name.
+"He is the Mighty One, the Terrible One, the Unforgiving One. The cheela that never flows---Attila-the-Speckled," said Letter-Reader, his speckled tread trembling at the name.
 
 Meanwhile, back at the base, Engineer Power-pack was setting up the power plant that would give them the energy they needed to survive.
 
@@ -175,7 +175,7 @@ The mention of meal-mush brought groans from the treads of the crew. The artific
 
 The antimatter drill moved rapidly through the crust, and the hole went down millimeter by millimeter as Power-Pack's drilling crew developed a rhythm. They finally approached the magma layer. The temperatures, pressures, and densities were so high that the outer casing of the drill began to show evidence of transmutation by neutron drip from the surrounding near-fluid of excess neutrons.
 
-"Lower the last section of liner and put a pressure seal on the top," said Power-Pack. "Then put an antimatter bomb on the end of the drill string in place of the drill and lower it. We are going to make a volcano&mdash;a tame volcano."
+"Lower the last section of liner and put a pressure seal on the top," said Power-Pack. "Then put an antimatter bomb on the end of the drill string in place of the drill and lower it. We are going to make a volcano---a tame volcano."
 
 The antimatter bomb was lowered to the bottom of the hole, and the drill string was removed. Set off by a coded pulse of acoustic waves, the bomb fractured the remaining few centimeters of crust and the high pressure neutron fluid in the mantle pushed upward to the surface. As the fluid rose into regions of lower pressure, some of the neutrons decayed into electrons and protons, releasing energy and lowering the density of the fluid, so that it rose even faster.
 

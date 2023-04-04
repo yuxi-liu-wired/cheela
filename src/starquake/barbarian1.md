@@ -45,7 +45,7 @@ His Swift roared and snapped at the Swift carrying Falling-Quirrl. They both had
 
 "We _must_ stay and fight." Qui-Qui picked up a pricker and a long pike. "And he cannot be allowed to win, for if he does, then the Dark Ages will surely fall on Egg, as they once did on Earth."
 
-Ferocious-Eyes moved unopposed through the deserted city of Bright's Heaven. He stopped his army when they came to the Maze Temple. He and Falling-Quirrl circled all around the outside wall. There were a few windows in the high wall, but they were barred and the sliding panels had been shut tight. Every few millimeters there were portholes&mdash;some at crust level and some at eye level. Through a few ports they caught the glimpse of an eye-ball looking out at them. Along the top of the wall there ran a spiral of metal. Occasional flashes of light appeared in the loops.
+Ferocious-Eyes moved unopposed through the deserted city of Bright's Heaven. He stopped his army when they came to the Maze Temple. He and Falling-Quirrl circled all around the outside wall. There were a few windows in the high wall, but they were barred and the sliding panels had been shut tight. Every few millimeters there were portholes---some at crust level and some at eye level. Through a few ports they caught the glimpse of an eye-ball looking out at them. Along the top of the wall there ran a spiral of metal. Occasional flashes of light appeared in the loops.
 
 "Those must be the 'magnetic barriers' our newest slaves told us about," said Falling-Quirrl.
 

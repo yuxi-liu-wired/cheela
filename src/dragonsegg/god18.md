@@ -7,7 +7,7 @@
 
 "Yes," the clan astrologer said. "For a long time, as an apprentice, he kept saying that the Inner Eye of Bright was flashing on and off. We finally convinced him that it was just his poor eyesight tricking him, but recently he has been saying that every dozen turns or so, the flashes get brighter and brighter, and then fade away again. The last time occurred a few turns ago. He even dragged me up to the top of his silly hill and kept saying to me, 'Look at them! Look at those brilliant flashes! Are you blind, Old One!'
 
-"I don't mind being called an Old One, for it is not long before I will get to play with the hatchlings," the clan astrologer went on. "But to be called blind by that nearly sightless freak is more than I can stand. Besides, he is going around telling everyone that Bright's Inner Eye is signaling to him&mdash;him alone!"
+"I don't mind being called an Old One, for it is not long before I will get to play with the hatchlings," the clan astrologer went on. "But to be called blind by that nearly sightless freak is more than I can stand. Besides, he is going around telling everyone that Bright's Inner Eye is signaling to him---him alone!"
 
 Sharp-Slicer looked at the seven points of light hanging nearly motionless over the east pole. She did not often look at the sky, as she was too preoccupied with running the clan here on the crust. However, if there had been bright flashes from the Inner Eye, she certainly would have noticed them. She normally did not pay much attention to religion, but, as Leader of the Clan, she was automatically Chief Worshiper of Bright at holy times, and it wouldn't do to let things be disrupted by an obviously deranged individual.
 

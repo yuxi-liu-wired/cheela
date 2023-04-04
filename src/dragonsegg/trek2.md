@@ -53,7 +53,7 @@ Following his instructions, Swift-Killer moved her body onto the large rectangle
 
 "It is like a map," said Swift-Killer, who utilized devices when planning large scale campaigns. "But it is not any place that I know..."
 
-She hesitated, and then said, "Wait... In this large circle, this tiny feature here must be the Holy Temple, and this must be Bright's Heaven&mdash;but everything is so distorted. The circle must be Egg itself, and these seven small dots must be Bright's Eyes." She looked again at the Institute astrologer and said, "This is a picture of Egg and the Eyes of Bright. But why is everything on Egg so distorted? It looks like it has been stretched in the east-west direction."
+She hesitated, and then said, "Wait... In this large circle, this tiny feature here must be the Holy Temple, and this must be Bright's Heaven---but everything is so distorted. The circle must be Egg itself, and these seven small dots must be Bright's Eyes." She looked again at the Institute astrologer and said, "This is a picture of Egg and the Eyes of Bright. But why is everything on Egg so distorted? It looks like it has been stretched in the east-west direction."
 
 "We don't know," said the Institute astrologer. "We are still trying to figure that out. We have since received another picture map, and the present signals are in the process of beaming down a third one."
 

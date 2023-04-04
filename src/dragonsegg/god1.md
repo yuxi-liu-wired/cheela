@@ -7,9 +7,9 @@ Then one turn, when the eyes of the cheela were lifted to the skies in prayer, o
 
 The Holy Ones were puzzled, but did not let it show. As masters of their profession, they had learned to say little and do even less until they were sure of themselves.
 
-"Yes&mdash;we expected something like that, but let us wait and we will study it further," they reassured the excited discoverer.
+"Yes---we expected something like that, but let us wait and we will study it further," they reassured the excited discoverer.
 
-They did study it. It was still a speck in the sky, not much different from all the other specks, but it soon became brighter than any of the others. Fortunately, it was not nearly as brilliant as the god Bright, as it would have been difficult to explain two gods to a people that had been brought up to believe in the omnipotence and uniqueness of the One God&mdash;Bright.
+They did study it. It was still a speck in the sky, not much different from all the other specks, but it soon became brighter than any of the others. Fortunately, it was not nearly as brilliant as the god Bright, as it would have been difficult to explain two gods to a people that had been brought up to believe in the omnipotence and uniqueness of the One God---Bright.
 
 The new speck grew and grew in brilliance with each passing turn, and although the common cheela noticed the increase in brightness, it was only the Holy Ones who noticed that the speck was also slowly moving with respect to the other stars in the sky. A moving star! This was unheard of in cheela astrology, where the pattern of lights, dominated by the glaring red-yellow presence of Bright, had always remained fixed in relative position while rotating slowly about Bright's throne in the sky.
 

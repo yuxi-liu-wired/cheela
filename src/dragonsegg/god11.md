@@ -3,11 +3,11 @@ It was twenty minutes to separation and the crew of Dragon Slayer gathered in th
 
 "After separation we will be on ten-hour interlocking duty shifts. There will be a two-hour overlap so the new person coming on duty can be debriefed on the status of the experiments before taking over. It is now 0912 so Abdul, Seiko and Doc are on duty, with Doc on his mid-shift meal break and Seiko to go off duty at 1000. We had better get into the routine, so the rest of us should relax now. I know we aren't going to quarters during breakaway, but our shift will be coming up soon, so make sure that you get some sleep, and don't spend your off hours just watching the others work."
 
-The time for separation approached, and they all went up to the main deck where each would have a viewport. The breakaway was quiet and uneventful. The procedure consisted of opening the hatch doors of the huge mother ship, unlocking the attachment fittings, and slowly backing the larger ship away from the freely falling sphere. Pierre had been right&mdash;no one went to quarters as the small sphere floated away from the immense side of the interstellar ark.
+The time for separation approached, and they all went up to the main deck where each would have a viewport. The breakaway was quiet and uneventful. The procedure consisted of opening the hatch doors of the huge mother ship, unlocking the attachment fittings, and slowly backing the larger ship away from the freely falling sphere. Pierre had been right---no one went to quarters as the small sphere floated away from the immense side of the interstellar ark.
 
 Cesar spoke. "It is always awe-inspiring to be outside, and up this close. The last time for me was when I came on board two years ago."
 
-"I've been out a dozen times on antenna maintenance," Amalita said. "But you're right&mdash;no matter how often you see it, it is still impressive."
+"I've been out a dozen times on antenna maintenance," Amalita said. "But you're right---no matter how often you see it, it is still impressive."
 
 Pierre spoke into the communications console. "You look good, St. George. See you in a week."
 
@@ -33,7 +33,7 @@ Through the long wait they could feel vibrations and slight accelerations that l
 
 "Down we go!" Pierre whispered into his throat mike, but he was only part way through the first phoneme when the asteroid passed by them. In a blink, they whirled half way around the massive sphere and found themselves falling down toward the neutron star, the ship's engines firing at full blast to remove the angular momentum that had been imparted by the gravity whip.
 
-The drop down into the fierce gravity well of Dragon's Egg only took two and a quarter minutes. All was quiet for most of the fall, but in the last few seconds&mdash;as they began to approach the neutron star&mdash;Pierre could feel the differential pressures of the tidal forces on the water in the tank. Then in a last instantaneous burst of feeling, Pierre's head was jerked about by a fierce acceleration. His ears ached and his hands and legs were jerked about by the second and third order tidal effects, as the piezoelectric drivers sang their ultrasonic cloak of protection into the water that surrounded him.
+The drop down into the fierce gravity well of Dragon's Egg only took two and a quarter minutes. All was quiet for most of the fall, but in the last few seconds---as they began to approach the neutron star---Pierre could feel the differential pressures of the tidal forces on the water in the tank. Then in a last instantaneous burst of feeling, Pierre's head was jerked about by a fierce acceleration. His ears ached and his hands and legs were jerked about by the second and third order tidal effects, as the piezoelectric drivers sang their ultrasonic cloak of protection into the water that surrounded him.
 
 His eyes failed to see the glow of the deorbiter mass as it flashed again across his screen, leaving Dragon Slayer motionless in the center of the six compensator masses that were whirling about the neutron star and the spacecraft five times a second. "What a ride!" a female voice said over the intercom, masked by the excitement and the breathing mask.
 

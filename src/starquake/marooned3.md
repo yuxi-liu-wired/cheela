@@ -3,7 +3,7 @@ Heavy-Egg finally came to his senses. He dimly remembered the shrieking pain in 
 
 Pieces of memory started to return. He remembered blindly wandering around on the top of the East Pole mountains, mad with pain. Finding the drop chute. Creeping, falling, sliding down through the darkness. New pain as he hit a broken section of the chute. Cries for help into the crust until his tread was raw, but no help came. Then the hunger pains grew stronger than the burn pains. He had finally found food. A chunk of food was in his manipulator, ready to go into his eating pouch. He was starved. But for some reason he had not eaten.
 
-He felt something underneath his tread. It was the body of another cheela. He moved his tread around, feeling the dead body&mdash;it was a large female. There were long slashes in the body torn by a crude blade. The sharp piece of metal that had caused the slashes was in one of his manipulators. The chunk of food was in another. He formed a set of tendrils and reached out to touch the food. It was smooth and round and soft and leathery...
+He felt something underneath his tread. It was the body of another cheela. He moved his tread around, feeling the dead body---it was a large female. There were long slashes in the body torn by a crude blade. The sharp piece of metal that had caused the slashes was in one of his manipulators. The chunk of food was in another. He formed a set of tendrils and reached out to touch the food. It was smooth and round and soft and leathery...
 
 "An egg!!!" he cried, his tread grating the crust with its vibrations. "I nearly ate an egg!!!"
 

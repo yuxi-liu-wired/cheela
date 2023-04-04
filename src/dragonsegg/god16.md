@@ -13,11 +13,11 @@ She was annoyed that the hatchling had been allowed to wander off this far from 
 
 As Sharp-Slicer approached the base of the rise, she could hear the high-pitched voice through the crust. She was surprised at how well the tiny ripples seemed to travel. She stopped to listen.
 
-"O Bright One in the sky. Why do you punish me so, for I have done nothing wrong. I have always worshiped you as I should," Pink-Eyes said. "You have inflicted this miserable pale body upon me&mdash;and now you have taken my only friend. Why? Oh why?"
+"O Bright One in the sky. Why do you punish me so, for I have done nothing wrong. I have always worshiped you as I should," Pink-Eyes said. "You have inflicted this miserable pale body upon me---and now you have taken my only friend. Why? Oh why?"
 
-Sharp-Slicer was a little bewildered that the youngster seemed so attached to the Old One. She had respected Loud-Talker herself. After all, anyone would respect an ex-Leader of the Combined Clans. But he was meat now&mdash;there was nothing left to respect. She supposed that this unseemly sorrow over a hunk of meat was just one of the many strange things that was wrong with the poor youngster. She rumbled a call in his direction.
+Sharp-Slicer was a little bewildered that the youngster seemed so attached to the Old One. She had respected Loud-Talker herself. After all, anyone would respect an ex-Leader of the Combined Clans. But he was meat now---there was nothing left to respect. She supposed that this unseemly sorrow over a hunk of meat was just one of the many strange things that was wrong with the poor youngster. She rumbled a call in his direction.
 
-"You&mdash;come down at once, and return to the compound!" she said. "You know there are barbarians not far away."
+"You---come down at once, and return to the compound!" she said. "You know there are barbarians not far away."
 
 Pink-Eyes was startled at the voice booming through the crust, for his eyes had been busy trying to make out the blur that was all he could see of Bright, and he had not noticed the Clan Leader's approach. He was awed at being addressed personally by the Leader of the Clan, and quickly flowed down the hill and started back to the camp, but a command from Sharp-Slicer brought him to a stop.
 

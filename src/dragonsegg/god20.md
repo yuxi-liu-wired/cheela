@@ -1,17 +1,17 @@
 ## 06:40:46 GMT MONDAY 20 JUNE 2050
 Pink-Eyes made his way up the slight rise just outside the clan camp. He had been so sure that Bright had been talking to him through Bright's Inner Eye, but no one would believe him.
 
-"Yet&mdash;it was so bright!" Pink-Eyes said to himself. "Such dazzling, brilliant flashes of pure light. It was Bright incarnate! Yet Bright would not let them see! Why? Why?? Why???"
+"Yet---it was so bright!" Pink-Eyes said to himself. "Such dazzling, brilliant flashes of pure light. It was Bright incarnate! Yet Bright would not let them see! Why? Why?? Why???"
 
-Pink-Eyes rested once again on the low rise. Using the prayers and chants that he had so faithfully rippled into the crust every worship time, he again sought comfort from one who seemed to have inflicted nearly every indignity upon him&mdash;except death.
+Pink-Eyes rested once again on the low rise. Using the prayers and chants that he had so faithfully rippled into the crust every worship time, he again sought comfort from one who seemed to have inflicted nearly every indignity upon him---except death.
 
 Pink-Eyes felt his small sharp knife in his personal weapons pouch, and drew it out. He looked at it for a long while, considering... He dropped the knife to the crust, where it lay, its tiny point shattered by the fall.
 
-Pink-Eyes knew that his clan would not allow him to starve, even though they refused to let him share in the work, but he resolved never to return. Without looking back, he set forth toward the east, directly into the wilderness&mdash;the territory of the barbarians. The sentry guards, used to the wanderings of this strange pale one of the clan, let him pass outward without challenge.
+Pink-Eyes knew that his clan would not allow him to starve, even though they refused to let him share in the work, but he resolved never to return. Without looking back, he set forth toward the east, directly into the wilderness---the territory of the barbarians. The sentry guards, used to the wanderings of this strange pale one of the clan, let him pass outward without challenge.
 
 Pink-Eyes had no plan. Having been rejected by the clan, his only thought was to leave. He knew he was in danger from the barbarians, but the thought of meeting death at the points of their spears held no terror for him. He traveled onward, drawn toward the pattern of lights over the east pole that slowly rotated, once a turn.
 
-Pink-Eyes found some partially ripe pods on an isolated wild plant, and was slowly savoring the first food he had had in many turns when he stopped, struck with awe. The Inner Eye had sent out a brilliant, long-lasting, multicolored beam of light down ahead of him. The beam was unlike the others that he had seen previously. Those had been short flashes of light, so fast and so intense that there was no color to them. These were like silent words of rolling crustquakes. They started in the deep red and slowly&mdash;taking their time&mdash;swept through strange colors into a radiating brilliance. Pink-Eyes waited, and shortly was rewarded by another dazzling display. As if in a trance, he put the pods into a storage pouch and moved off toward the beam of light. It came again and again, and soon he began to depend upon its regularity.
+Pink-Eyes found some partially ripe pods on an isolated wild plant, and was slowly savoring the first food he had had in many turns when he stopped, struck with awe. The Inner Eye had sent out a brilliant, long-lasting, multicolored beam of light down ahead of him. The beam was unlike the others that he had seen previously. Those had been short flashes of light, so fast and so intense that there was no color to them. These were like silent words of rolling crustquakes. They started in the deep red and slowly---taking their time---swept through strange colors into a radiating brilliance. Pink-Eyes waited, and shortly was rewarded by another dazzling display. As if in a trance, he put the pods into a storage pouch and moved off toward the beam of light. It came again and again, and soon he began to depend upon its regularity.
 
 As Pink-Eyes moved forward to intercept the beam, he noticed that it was slowly moving off to the north. A short while later, he saw that it had stopped its northward movement. It now seemed to be coming closer and closer with every lengthy blink. He moved to intercept its southward path, and finally stopped and waited for it to come to him. As the turn passed he watched the brilliant, multicolored display get brighter and brighter.
 
@@ -21,7 +21,7 @@ Bewildered, Pink-Eyes drew himself into shape and waited. A short while later th
 
 Pink-Eyes waited, his eyes gazing upward, as the beautiful beam slowly blinked its way southward. He was sure it would return, so he waited, only moving to find some food to sustain him, until he saw the beam come closer again. When it finally arrived, he was ready, his small, pale body thinned out to its maximum to receive the warm caress of the light. The beam struck him, and he reveled in sexual pleasure, his tread kneading the crust in a paroxysm of prayer. "Bright! O Bright!! Pour down your blessing of love on me. Thank you! O thank you for rewarding your faithful servant!"
 
-For dozens of turns, Pink-Eyes existed in the wilderness, communing with the Inner Eye of Bright as its beam of love and pleasure swept by every half-dozen turns. His slow wandering path took him steadily back toward his old clan camp as his pace over the crust matched the steady motion of the scanning beam. As Pink-Eyes moved along, he became more and more convinced that he&mdash;and he alone&mdash;had been called to bring the Word of Bright to the cheela.
+For dozens of turns, Pink-Eyes existed in the wilderness, communing with the Inner Eye of Bright as its beam of love and pleasure swept by every half-dozen turns. His slow wandering path took him steadily back toward his old clan camp as his pace over the crust matched the steady motion of the scanning beam. As Pink-Eyes moved along, he became more and more convinced that he---and he alone---had been called to bring the Word of Bright to the cheela.
 
 Fortified spiritually, Pink-Eyes finally broke away from his addiction to the intense sexual pleasure of the beam. He now moved more swiftly, and left the beam behind him. The beam was still making its north and south movement over the crust while slowly creeping westward. Pink-Eyes went directly toward the clan camp. He made his way slowly up to the top of the mound near the camp where he had previously communed with Bright. He began to preach, his high-pitched voice, now strong with undoubting assurance, rippling through the crust.
 
@@ -57,11 +57,11 @@ The three warriors moved slowly up the hill, none of them even bothering to pull
 
 "Halt!" Pink-Eyes said to the warriors, and they hesitated, slightly bewildered at the strange behavior. Looking north, Pink-Eyes saw the beam approaching the mound. He turned all of his eyes upward toward the Eyes and started to pray, ignoring the warriors.
 
-"O Great Bright! Show these wicked unbelievers the love that you can give to them if they become your true followers." The warriors continued to hesitate, uneasy over interrupting a prayer&mdash;yet their treads were rippling lightly with suppressed humor.
+"O Great Bright! Show these wicked unbelievers the love that you can give to them if they become your true followers." The warriors continued to hesitate, uneasy over interrupting a prayer---yet their treads were rippling lightly with suppressed humor.
 
-Sharp-Slicer was in the midst of stamping a sharp command to the hesitating warriors when suddenly she felt herself flattening in a frenzy of glowing sexual pleasure. Her eyes, writhing on extended eye-stubs, could see others also flowing and thinning out around her. She felt the edge of the nearby clan astrologer flowing over one side of her, partially blocking the intense warmth. A male tread on her topside&mdash;normally a pleasurable feeling&mdash;did not feel good enough, and she contracted and withdrew herself to bask her entire topside in the more sublime pleasure that poured down from the sky.
+Sharp-Slicer was in the midst of stamping a sharp command to the hesitating warriors when suddenly she felt herself flattening in a frenzy of glowing sexual pleasure. Her eyes, writhing on extended eye-stubs, could see others also flowing and thinning out around her. She felt the edge of the nearby clan astrologer flowing over one side of her, partially blocking the intense warmth. A male tread on her topside---normally a pleasurable feeling---did not feel good enough, and she contracted and withdrew herself to bask her entire topside in the more sublime pleasure that poured down from the sky.
 
-As she wiggled in enjoyment, she could hear Pink-Eyes' high pitched voice coming through the crust. "Come&mdash;all of you&mdash;receive the Blessing of Bright that I bring to you."
+As she wiggled in enjoyment, she could hear Pink-Eyes' high pitched voice coming through the crust. "Come---all of you---receive the Blessing of Bright that I bring to you."
 
 The pleasure grew more and more intense, then it stopped. Slowly Sharp-Slicer, the clan astrologer and the others regained their normal shape. Exhausted, they waited motionless while Pink-Eyes spoke.
 
@@ -81,7 +81,7 @@ Sharp-Slicer listened to the worship service from the fringes of the crowd. She 
 
 "What do you mean!" Hard-Rock protested. "I am too old for sex. All I want to do is tend my eggs."
 
-However, when Pink-Eyes brought down the Blessing of Bright on the worshiping clan, Hard-Rock felt a sexual surge that was more intense than the best experience of his youth. His body thinned and his eyes stared out from extended stems as his topside was bathed in the warming beam. Then&mdash;just at the end of the Blessing&mdash;Hard-Rock, his eyes gazing upward at the Eyes in pleasure, saw a faint glimmering beam of deep-colored light pouring down upon him.
+However, when Pink-Eyes brought down the Blessing of Bright on the worshiping clan, Hard-Rock felt a sexual surge that was more intense than the best experience of his youth. His body thinned and his eyes stared out from extended stems as his topside was bathed in the warming beam. Then---just at the end of the Blessing---Hard-Rock, his eyes gazing upward at the Eyes in pleasure, saw a faint glimmering beam of deep-colored light pouring down upon him.
 
 "I see it! I see it!!" Hard-Rock shouted. "I believe! I believe!!"
 
@@ -171,9 +171,9 @@ As their line of travel came closer and closer to intersecting the path of the b
 
 "Help, O Bright! Help this unbeliever find faith! Bring down the Blessing of Bright upon Hungry-Swift."
 
-Hungry-Swift's eyes followed those of God's-Chosen up to the strange formation of seven lights that hung overhead in the sky. He was calmly wondering how they managed to stay in one place while the rest of the stars in the sky moved from east to west&mdash;when suddenly his body seemed to explode with pleasure.
+Hungry-Swift's eyes followed those of God's-Chosen up to the strange formation of seven lights that hung overhead in the sky. He was calmly wondering how they managed to stay in one place while the rest of the stars in the sky moved from east to west---when suddenly his body seemed to explode with pleasure.
 
-For what seemed like an eternity, Hungry-Swift reveled in the heaven-sent pleasure of Bright's love. His eye-stubs reached out toward the Eyes in an attempt to copulate with the stars. They writhed back and forth, stretching to their limit&mdash;then suddenly they froze as they saw the beam coming down from the Inner Eye of Bright.
+For what seemed like an eternity, Hungry-Swift reveled in the heaven-sent pleasure of Bright's love. His eye-stubs reached out toward the Eyes in an attempt to copulate with the stars. They writhed back and forth, stretching to their limit---then suddenly they froze as they saw the beam coming down from the Inner Eye of Bright.
 
 "I see! I see!!" he shouted. Then as quickly as it had come, the warmth stopped.
 
@@ -185,7 +185,7 @@ Completely convinced, Hungry-Swift also prayed. As Leader of the Combined Clans,
 
 "Lead me, O Bright," he said. "Give me your Word, and I will follow it with all that I command."
 
-"I will give you Bright's Word," God's-Chosen said. "For too long Bright has been neglected. Bright has been good to his people. They have grown in numbers and have prospered. What used to be a small clan gathered in the city of Bright's Heaven is now many clans that are spread out over Bright's Empire&mdash;so powerful that the barbarians shrink from angering them. Yet what have the ungrateful cheela done for Bright in return?"
+"I will give you Bright's Word," God's-Chosen said. "For too long Bright has been neglected. Bright has been good to his people. They have grown in numbers and have prospered. What used to be a small clan gathered in the city of Bright's Heaven is now many clans that are spread out over Bright's Empire---so powerful that the barbarians shrink from angering them. Yet what have the ungrateful cheela done for Bright in return?"
 
 "We worship him often," Hungry-Swift protested.
 
@@ -209,7 +209,7 @@ Before he left, Hungry-Swift returned for one last visit to his friend and teach
 
 "Are you God?" he asked.
 
-"No," God's-Chosen said. "Bright is God. I am merely Bright's vehicle by which he sends his Word and his Blessing. You have received the Word. Go and carry it out. Yours will not be an easy task, for it will take a dozen greats of turns to create a temple of that size. But do not worry about the time, for Bright is patient. I will stay here and bring the Blessing of Bright to all the clans. That too will take time, but by the time you have the Holy Temple built, I will have brought the Blessing of Bright to all here in the east and will come to Bright's Heaven to bring the Blessing down on all who live there&mdash;on the Holy Temple itself."
+"No," God's-Chosen said. "Bright is God. I am merely Bright's vehicle by which he sends his Word and his Blessing. You have received the Word. Go and carry it out. Yours will not be an easy task, for it will take a dozen greats of turns to create a temple of that size. But do not worry about the time, for Bright is patient. I will stay here and bring the Blessing of Bright to all the clans. That too will take time, but by the time you have the Holy Temple built, I will have brought the Blessing of Bright to all here in the east and will come to Bright's Heaven to bring the Blessing down on all who live there---on the Holy Temple itself."
 
 "Bright give me strength that I might live to see the time," said Hungry-Swift.
 
@@ -271,7 +271,7 @@ God's-Chosen moved back to the center of the mound and repeated in his high-pitc
 
 God's-Chosen turned his small pink eyes from the crowd, stared hard at the motionless High Priest, and said, "I do not want my people coerced into worshiping Bright. If the astrologers cannot live on free will offerings, let them work in the fields!"
 
-A murmur of approval started in the crowd of supplicants, and then grew to a continuous cheer as the crowd began to realize who the pale figure was&mdash;and what he had been saying. As the crowd started up the mound to gather around God's-Chosen, the High Priest moved away down the other side, his apprentices abandoning the sleds and following after him.
+A murmur of approval started in the crowd of supplicants, and then grew to a continuous cheer as the crowd began to realize who the pale figure was---and what he had been saying. As the crowd started up the mound to gather around God's-Chosen, the High Priest moved away down the other side, his apprentices abandoning the sleds and following after him.
 
 Later in the astrologers' compound, the High Priest was conferring with Bright's-Second, the Chief Astrologer.
 

@@ -3,7 +3,7 @@ It was Saturday evening. Donald and Jacqueline sat on the grass of the Griffith 
 
 "I still don't understand why Sawlinski is doing the video-news interviews," Donald said with a frown. "You were the one who discovered the neutron star first, not he."
 
-"That is not the way science works," Jacqueline explained. "A Professor starts a research project hoping to discover something new. The student sometimes makes the discovery, but without the Professor's research project, the discovery would not have been made. Since the Professor gets the blame if the project is a failure, he should get the benefit from any successes. Besides, it doesn't upset me&mdash;after all, my career is off to a great start!"
+"That is not the way science works," Jacqueline explained. "A Professor starts a research project hoping to discover something new. The student sometimes makes the discovery, but without the Professor's research project, the discovery would not have been made. Since the Professor gets the blame if the project is a failure, he should get the benefit from any successes. Besides, it doesn't upset me---after all, my career is off to a great start!"
 
 Donald only felt a greater admiration for the woman of whom he had become so fond. He kept silent and continued to look upward at the stars.
 

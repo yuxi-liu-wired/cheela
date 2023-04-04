@@ -11,7 +11,7 @@ The specialist replied, "We had already planned to do that, but we are all conce
 
 Clear-Thinker flowed off the pad, "What is your proposal?"
 
-"Now&mdash;you must realize that what we are about to suggest is against all normal human and cheela standards of ethics. All the human-physiology specialists here, along with many experts on human psychology, medicine and law back on Egg have argued back and forth for the last two turns. There has been a general consensus, although not unanimous by any means, and it was decided to bring it to you for your approval."
+"Now---you must realize that what we are about to suggest is against all normal human and cheela standards of ethics. All the human-physiology specialists here, along with many experts on human psychology, medicine and law back on Egg have argued back and forth for the last two turns. There has been a general consensus, although not unanimous by any means, and it was decided to bring it to you for your approval."
 
 Clear-Thinker waited patiently while the specialist worked her way through the circumlocutious argument.
 
@@ -25,4 +25,4 @@ Finally it was out, and Clear-Thinker could understand why it had taken the spec
 
 "We have plenty of illuminators," Clear-Thinker said. "Check with the camera crew to find out which one they can spare, and proceed whenever you are ready."
 
-The specialist gathered a crew and soon a modified X-ray illuminator with a large focusing mirror and a high-intensity power source moved up to the window of the viewing port. The computer first aligned the coordinates of the focal point of the illuminator with the calculated position of the cancer deep within the slowly moving breast. Then burst after burst of high intensity X-rays shot out from the illuminator as it was slowly moved back and forth in wide arcs about the focal point buried deep within Amalita. The cancer shriveled and died, while the skin at the surface of the breast started to turn pink&mdash;as if it had gotten too much sun at the beach.
+The specialist gathered a crew and soon a modified X-ray illuminator with a large focusing mirror and a high-intensity power source moved up to the window of the viewing port. The computer first aligned the coordinates of the focal point of the illuminator with the calculated position of the cancer deep within the slowly moving breast. Then burst after burst of high intensity X-rays shot out from the illuminator as it was slowly moved back and forth in wide arcs about the focal point buried deep within Amalita. The cancer shriveled and died, while the skin at the surface of the breast started to turn pink---as if it had gotten too much sun at the beach.

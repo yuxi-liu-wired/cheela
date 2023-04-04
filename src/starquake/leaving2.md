@@ -29,7 +29,7 @@ Seiko opened her heavy eyelids to see Dr. Cesar Wong holding her by the shoulder
 
 "Doctor Wong, I appreciate your concern. But I am not about to abandon my professional responsibility at this critical juncture."
 
-"Well&mdash;at least take a break and join with me in a cup of hot coffee in the galley." Dr. Wong took the petite scientist gently by the arm. She allowed herself to be steered down the passageway to the bottom deck. On the way through the middle deck, they passed Amalita and Pierre working the communications console that talked directly to the cheela through the laser communication link.
+"Well---at least take a break and join with me in a cup of hot coffee in the galley." Dr. Wong took the petite scientist gently by the arm. She allowed herself to be steered down the passageway to the bottom deck. On the way through the middle deck, they passed Amalita and Pierre working the communications console that talked directly to the cheela through the laser communication link.
 
 Pierre was stretched out in free fall, his head and arms inside the communications console, while Amalita was talking to the cheela on the star. The speaker was not a computer-slowed image of a real cheela, but the real-time image of Sky-Teacher, a special purpose intelligent robot that the cheela had built for the job of communicating with the slow-thinking humans.
 

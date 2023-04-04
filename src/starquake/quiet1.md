@@ -151,7 +151,7 @@ Zero-Gauss got his attention with an electronic whisper that tickled his backsid
 
 "It must be a long list," he said.
 
-"No," she said. "I know of only one scientist at the Institute who is on it. Don't forget, the process is so time-consuming and costly that they are only able to undertake one rejuvenation every three turns&mdash;only four dozen cheela in a whole great of turns. It must be tough having to make the decision of who are to be the lucky few who are going to be allowed to live a second life while the rest of us will have to die when our time comes."
+"No," she said. "I know of only one scientist at the Institute who is on it. Don't forget, the process is so time-consuming and costly that they are only able to undertake one rejuvenation every three turns---only four dozen cheela in a whole great of turns. It must be tough having to make the decision of who are to be the lucky few who are going to be allowed to live a second life while the rest of us will have to die when our time comes."
 
 Cliff-Web was too embarrassed to reply, and they moved along the slidewalls in silence, switching leads at each tack. As they came to the next intersection they switched places again so that Cliff-Web was spreading the field lines again. Snuggled up to his trailing side, Zero-Gauss tried to break the silence with a whispered comment.
 

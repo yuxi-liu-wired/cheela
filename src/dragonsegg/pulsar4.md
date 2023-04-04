@@ -11,7 +11,7 @@ Jacqueline took another sip of wine and watched Donald's eyes as they peered int
 
 Jacqueline knew Donald well enough to realize where his mind was. "Which one are you looking at?" she asked, knowing that he knew the position in the sky of every one of the six deep-space spacecraft that he was responsible for monitoring.
 
-"Not one of mine," he replied, "but the first one to leave the Solar System&mdash;the Pioneer X. It went out between Taurus and Orion. It must be at 10,000 AU by now. I was imagining that I was out there, no longer able to communicate with Earth, pushing on alone, buffeted by micrometeors and the interstellar wind, getting more and more tired but pressing onward and outward..."
+"Not one of mine," he replied, "but the first one to leave the Solar System---the Pioneer X. It went out between Taurus and Orion. It must be at 10,000 AU by now. I was imagining that I was out there, no longer able to communicate with Earth, pushing on alone, buffeted by micrometeors and the interstellar wind, getting more and more tired but pressing onward and outward..."
 
 Jacqueline's tinkling laugh brought him back to Earth. He rolled over and glowered somewhat shamefacedly at her.
 

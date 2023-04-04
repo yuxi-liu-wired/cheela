@@ -1,7 +1,7 @@
 ## TUESDAY 5 MAY 2020
 The Deep Space Network spent five minutes (and many rubles) to launch the command into space. The five light-minute long string of radio pulses traveled for over a day before it reached the OE probe 200 AU away in its high arc over the Sun. The command was stored, and the spacecraft computer rapidly computed the check sum. It found no obvious errors, but the string of bits was treated like a potentially dangerous cancer virus. It was not allowed to get into the command mechanism just yet, for if there were something wrong in that string of bits, it could kill the spacecraft just as surely as a meteor strike. A copy of the bit stream stored in the holding memory was sent back to Earth. There the copy of the copy was checked with the original. Finally, another copy of the original command string, followed by a separate execute command, was sent out to reassure the OE probe that it could now change its operational state.
 
-Jacqueline was waiting when the next data dump came into the computer. It was nearly midnight&mdash;a typical working hour for a graduate student&mdash;only now she was not as lonely as she had been in previous months when she had sat at this console in the early morning hours.
+Jacqueline was waiting when the next data dump came into the computer. It was nearly midnight---a typical working hour for a graduate student---only now she was not as lonely as she had been in previous months when she had sat at this console in the early morning hours.
 
 "Looks like a good dump," said Donald as he watched the Deep Space Network report build up on his screen.
 
@@ -29,7 +29,7 @@ In the next plot, the slow variations that were the basis of Jacqueline's thesis
 
 Soon the spectral analysis was on the screen. There was a lot of noise and some sideband spikes, but there was no doubt that the data centered predominantly at a frequency of 5.02 Hertz or a period of 199 milliseconds.
 
-"Something that regular can only be manmade&mdash;or a pulsar," said Sawlinski. "I want you to find the other sections of scruff and see if the periods are the same. If they are, see if one section of scruff keeps in step with the beat set up by the preceding sections. I will check the library to get the latest data on pulsars." He went across the room and activated another console.
+"Something that regular can only be manmade---or a pulsar," said Sawlinski. "I want you to find the other sections of scruff and see if the periods are the same. If they are, see if one section of scruff keeps in step with the beat set up by the preceding sections. I will check the library to get the latest data on pulsars." He went across the room and activated another console.
 
 Jacqueline peered at the screen and said, "If you are going to look up pulsar periods, I would say that the period is 199.2 milliseconds, although the last number could be off by a few digits."
 

@@ -7,21 +7,21 @@ Pierre Carnot Niven, having finished his ten-hour shift and a leisurely dinner, 
 
 "Fine!"
 
-His finger traced another line. "Now&mdash;the other arm-same as the first!
+His finger traced another line. "Now---the other arm-same as the first!
 
 "Good!"
 
-He stretched back and surveyed his handiwork on the screen with pride. The image of the child on the screen now looked the way it should, although the baby-fat pudginess made it an unlikely candidate for what he would make it do next. However, that image was just what he had been striving for. The audience for his scan-book needed to identify&mdash;even if they couldn't copy. He leaned over to the screen and touched the right hand of the image.
+He stretched back and surveyed his handiwork on the screen with pride. The image of the child on the screen now looked the way it should, although the baby-fat pudginess made it an unlikely candidate for what he would make it do next. However, that image was just what he had been striving for. The audience for his scan-book needed to identify---even if they couldn't copy. He leaned over to the screen and touched the right hand of the image.
 
 "Put a ball in this hand!" A ball was instantly there, with the fingers of the hand opened to grasp it.
 
 "Now comes the difficult part," he thought. "We'll see how good the body action subroutine is."
 
-He spoke again. "Throw ball from here&mdash;along hereto here. Use Earth gravity!" While he spoke, his finger scribed a curve leading from the hand along a high arc down into the background area of the picture.
+He spoke again. "Throw ball from here---along hereto here. Use Earth gravity!" While he spoke, his finger scribed a curve leading from the hand along a high arc down into the background area of the picture.
 
 He watched as the body in the image leaned back in a slightly jerky movement and launched the ball into the air. The ball rose and then fell back to the ground-stopping abruptly without a bounce. The computer handled the perspective very nicely; the ball grew smaller and smaller as it sailed into the distance.
 
-"Good&mdash;repeat with Lunar gravity!"
+"Good---repeat with Lunar gravity!"
 
 The scene was repeated with the words _LUNAR GRAVITY_ in the upper corner of the screen. The ball now rose much more slowly, with a significantly flatter trajectory.
 
@@ -29,17 +29,17 @@ Pierre spoke again, "Repeat both!"
 
 The two scenes repeated their actions. First _EARTH GRAVITY_, then _LUNAR GRAVITY_. Pierre watched, checking them carefully. They would look much better after they were fleshed out with the publisher's curved surface software routine. He then generated another one using Mars gravity. There weren't many of his readers on Mars yet, but he suspected there would be by the time he returned to earth.
 
-Pierre leaned toward the screen. "Earth gravity picture&mdash;rotate 45 degrees to right!
+Pierre leaned toward the screen. "Earth gravity picture---rotate 45 degrees to right!
 
 "Display action!"
 
-He watched as the action repeated, this time as seen from the side. The ball rose in a nice parabolic trajectory. He smiled and thought, "The kids have had their fun imagining that their bodies are strong enough to throw a ball fifty meters. Now they will have to get to work and learn some science, which&mdash;after all&mdash;is why they are scanning the book." He spoke aloud:
+He watched as the action repeated, this time as seen from the side. The ball rose in a nice parabolic trajectory. He smiled and thought, "The kids have had their fun imagining that their bodies are strong enough to throw a ball fifty meters. Now they will have to get to work and learn some science, which---after all---is why they are scanning the book." He spoke aloud:
 
 "Shrink ball by two!
 
 "Shrink child by five!
 
-"Put in graph axes&mdash;vertical here!" His hand reached out and scribed a line from the top of the screen down to the miniature figure now tossing a baseball as big as its head.
+"Put in graph axes---vertical here!" His hand reached out and scribed a line from the top of the screen down to the miniature figure now tossing a baseball as big as its head.
 
 Pierre was halfway through getting the coordinate axes numbered and the parabolic equation placed in the picture where it would be out of the way of the trajectory, when he was interrupted by a message that flashed on the upper part of the screen.
 
@@ -100,7 +100,7 @@ He looked up and the others watched his expression change from initial surprise 
 
 "No," Cesar said. "We are deadly serious. I knew you would have a tough time accepting this without better proof, so I had Seiko fix up the star image telescope with the filters for direct viewing."
 
-Pierre knew from the tone that Cesar was serious and that the image print was real&mdash;but he still found himself diving up the passageway toward the star image telescope control post. He floated in, quickly checked the filter settings, then flicked the switch that opened the direct view port. The light beamed in from overhead and down onto the white frosted table top in the center of the room. He drifted over and hung above the glaring image and adjusted the strobe controls until the spinning image in the center of the table slowed down and finally stopped rotating. He found the symmetric flowerlike diagram.
+Pierre knew from the tone that Cesar was serious and that the image print was real---but he still found himself diving up the passageway toward the star image telescope control post. He floated in, quickly checked the filter settings, then flicked the switch that opened the direct view port. The light beamed in from overhead and down onto the white frosted table top in the center of the room. He drifted over and hung above the glaring image and adjusted the strobe controls until the spinning image in the center of the table slowed down and finally stopped rotating. He found the symmetric flowerlike diagram.
 
 Pierre looked up as the others came up the passageway. "The diagram is now complete," he said.
 
@@ -110,7 +110,7 @@ They gathered around the table and looked down at the image as Pierre whispered 
 
 "They wouldn't be made of neutrons," Pierre replied. "My measurements show that although the interior of the star is made of neutrons, the outer crust has a density more like that of a white dwarf star, and its composition is quite complex, with most of the same atomic nuclei that we have in the Earth's crust, only much more neutron-rich and without the electron clouds around them."
 
-Pierre was perplexed. They had a mission here at Dragon's Egg. The mission was to get as much scientific data as possible from their vantage point only 400 km from the neutron star. His problem was that the magic gravitational elevator that had put them down into this orbit a few days ago would soon finish its complicated interlaced orbital pattern and would be returning to take them away again. They had only a limited amount of time&mdash;what should they do?
+Pierre was perplexed. They had a mission here at Dragon's Egg. The mission was to get as much scientific data as possible from their vantage point only 400 km from the neutron star. His problem was that the magic gravitational elevator that had put them down into this orbit a few days ago would soon finish its complicated interlaced orbital pattern and would be returning to take them away again. They had only a limited amount of time---what should they do?
 
 Abdul spoke. "I don't really come onto shift for over an hour. Why don't I try to generate some kind of signal to send down in case there really is some form of intelligent life there, while the rest of you keep up with the science time line."
 

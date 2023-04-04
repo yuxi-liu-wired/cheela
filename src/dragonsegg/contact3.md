@@ -1,7 +1,7 @@
 ## 07:58:24.4 GMT MONDAY 20 JUNE 2050
 A fraction of a second later, the pulsed emission started again, and this time the narrow-angle scanner caught it early in its emission period. The semiautomatic search-and-identify circuits kept the scanner focused on the pulsations, while the feature extractor in the frequency analysis circuits activated a correlation program. A strong match was then found between the pulsation pattern of the emissions and the rectangular picture pattern that Abdul had chosen in his attempts at communication with Dragon's Egg. If the computer had been a human, its eyebrows would have raised.
 
-The new correlation was enough to trigger an action circuit. As a result&mdash;a millisecond later&mdash;humans were called into the loop.
+The new correlation was enough to trigger an action circuit. As a result---a millisecond later---humans were called into the loop.
 
     PERIODIC X-UV EMISSION—EAST POLE
 

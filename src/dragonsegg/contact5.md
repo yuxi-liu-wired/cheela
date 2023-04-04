@@ -3,7 +3,7 @@ Abdul came flying over to Seiko's console. He halted his headlong dive with a pr
 
 "What reply?" he said.
 
-"There is someone down there who is sending back pictures with the same format that you used," Seiko replied, "but they are coming from the east pole, they use thermal ultraviolet radiation instead of laser light, and they are coming very fast. Look&mdash;here is the first picture."
+"There is someone down there who is sending back pictures with the same format that you used," Seiko replied, "but they are coming from the east pole, they use thermal ultraviolet radiation instead of laser light, and they are coming very fast. Look---here is the first picture."
 
 "It is a picture of Dragon Slayer and the six Tidal Compensators above Dragon's Egg," Abdul said. "But the star seems to be badly distorted into the shape of a pancake. It must be their star, however, because they have drawn in the mound formation. But what is that long narrow wedge with its base near us and its point over the formation?"
 
@@ -23,7 +23,7 @@ Abdul went back to his console and soon had a trace of the pulses from the first
 
 "The radiation is from a thermal source," Seiko retorted.
 
-Abdul paused as her reply sank in. "They are signaling to us with the neutron star equivalent of American Indian smoke signals!" he said. "And each one of those crude pulses is made in four microseconds&mdash;Great Allah! That means that those beings must live something like a million times faster than we do! And I have been sending the laser pulses at a rate of about once per second. To them that is like a million seconds between pulses."
+Abdul paused as her reply sank in. "They are signaling to us with the neutron star equivalent of American Indian smoke signals!" he said. "And each one of those crude pulses is made in four microseconds---Great Allah! That means that those beings must live something like a million times faster than we do! And I have been sending the laser pulses at a rate of about once per second. To them that is like a million seconds between pulses."
 
 Seiko quickly did the calculation for him. "As if it were about a week between pulses."
 
@@ -31,7 +31,7 @@ Abdul had another horrible thought. "How long has it been since they started to 
 
 Seiko's hands flicked on the keyboard, and the first picture reappeared with the time of reception in the upper corner. "The first picture arrived almost a minute ago," she replied, "and if the ratio is a million to one, that is like two years ago."
 
-"They have probably gotten tired of waiting for an answer and have gone home," Abdul said. "We had better get busy&mdash;and fast!" He hesitated a second, then lifted the cover on a panel on the side of the console and flicked the emergency alarm switch.
+"They have probably gotten tired of waiting for an answer and have gone home," Abdul said. "We had better get busy---and fast!" He hesitated a second, then lifted the cover on a panel on the side of the console and flicked the emergency alarm switch.
 
 "You explain the situation to Pierre and the others," he said over the whoop of the alarm signal, "and get Pierre to start moving the Dragon Slayer over the mound formation. I will try to get some sort of reply back as fast as I can."
 

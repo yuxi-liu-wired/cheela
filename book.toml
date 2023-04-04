@@ -9,5 +9,6 @@ src = "src"
 site-url = "/cheela/"
 default-theme = "rust"
 preferred-dark-theme = "ayu"
+curly-quotes = true
 no-section-label = true
 git-repository-url = "https://github.com/mdPub/cheela"

@@ -6,7 +6,7 @@ Amalita crawled slowly along the passageway ladder from the Science Deck to the 
 
 "If only Dragon Slayer had some means of propulsion," she said to Pierre.
 
-"It'd have to be faster-than-light propulsion to get away from the neutron star before the tides tore us..." Suddenly something clicked in Pierre's mind. In special relativity, faster-than-light travel was equivalent to time travel&mdash;and he knew the cheela could travel faster than the speed of light. Pierre turned back to the console screen.
+"It'd have to be faster-than-light propulsion to get away from the neutron star before the tides tore us..." Suddenly something clicked in Pierre's mind. In special relativity, faster-than-light travel was equivalent to time travel---and he knew the cheela could travel faster than the speed of light. Pierre turned back to the console screen.
 
 "Sky-Teacher," he said. "You can travel faster than light. Do you have time travel?"
 

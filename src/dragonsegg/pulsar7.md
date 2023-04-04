@@ -31,7 +31,7 @@ As she talked, she was working the keyboard, and soon, underneath the marching r
 
 "Hmmm," said Donald, "maybe the delay is almost exactly 200 milliseconds and they are just shifted."
 
-"No," Jacqueline said, pointing to the screen. "Look&mdash;there is a very weak X-ray pulse followed by three strong ones and then two weak ones. You can see the exact pattern in the radio pulses, right below them. The delay is almost zero. That must mean that whatever the source of the pulses, it is very close to the detectors."
+"No," Jacqueline said, pointing to the screen. "Look---there is a very weak X-ray pulse followed by three strong ones and then two weak ones. You can see the exact pattern in the radio pulses, right below them. The delay is almost zero. That must mean that whatever the source of the pulses, it is very close to the detectors."
 
 "...and the closest thing to the detectors is the spacecraft itself," Donald said. "I am afraid that somehow the spacecraft is putting spikes into both the low frequency radio antenna and the X-ray telescope."
 

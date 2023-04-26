@@ -11,7 +11,7 @@ The long procession from the distant clan compound started to arrive well before
 
 The warriors and the younglings dropped their loads of food, which were picked up eagerly by Chef Pouch-Pleaser's crew. The members of the clan, having just finished a long trek, were hungry and wandered about between the foodmats, sampling the large variety of foods that the food machines could produce.
 
-"Aren't you spacers going to eat any of the food?" Letter-Ready asked Otis-Elevator, who picked up a dark red ball of chewy meal-mush and put it into an eating pouch to reassure Letter-Reader.
+"Aren't you spacers going to eat any of the food?" Letter-Reader asked Otis-Elevator, who picked up a dark red ball of chewy meal-mush and put it into an eating pouch to reassure Letter-Reader.
 
 "We would rather wait to taste the food that you brought," said Otis-Elevator.
 
